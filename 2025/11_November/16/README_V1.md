@@ -1,0 +1,7099 @@
+
+***
+
+# Clash of Clans session 2025, Sunday, November 16th
+
+<!--
+_The lead section is unmaintained, and has been removed on 2023, Sunday, September 17th. It may come back in the future._
+!-->
+<!-- I had a long length session today. I played for a while and started some upgrades, and did my usual 6 versus battles. !--> <!-- Taken out on August 1st 2021, this is getting too old || I am still considering making this game a daily/bi-daily game (decision started 14 Sundays ago (Sunday, April 18th 2021) and it got stronger 13 Sundays ago (Sunday, April 25th 2021) and became very close to becoming official 10 Sundays (Sunday, May 16th 2021) I am now really considering it) !--> <!--I didn't get attacked since I last played.!--> <!-- I did not get attacked since I last played. !-->
+
+***
+
+## Main village
+
+<details><summary><p>Click/tap here to expand/collapse older entries</p></summary>
+
+### 2021, Sunday, October 17th and earlier
+
+Sessions before 2021, Sunday, October 17th were not documented consecutively, and are not available for inclusion for this reason (they don't exist)
+
+### 2021, Sunday, October 24th
+
+I did some upgrades in my main village, upgrading my 2nd bomb tower to level 3 for 2.5 million gold, and upgrading 4 walls to level 10 for 500,000 elixir each, 2,000,000 elixir total. I am surprised how I have managed to get almost half of my walls from level 9 to level 10 already. - 2021 Sunday October 24th
+
+### 2021, Sunday, October 31st
+
+I did some upgrades in my main village, upgrading my hidden tesla to level 7 for 2 million gold, and upgrading 4 walls to level 10 for 500,000 elixir each, 2,000,000 elixir total. I am surprised how I have managed to get almost half of my walls from level 9 to level 10 already. There are less than 100 walls left to upgrade to level 10. - 2021 Sunday October 31st
+
+### 2021, Sunday, November 7th
+
+I did some upgrades in my main village, upgrading a missed archer tower to level 12 for 2.5 million gold, and upgrading 4 walls to level 10 for 500,000 elixir each, 2,000,000 elixir total. I am surprised how I have managed to get almost half of my walls from level 9 to level 10 already. There are less than 100 walls left to upgrade to level 10. - 2021 Sunday November 7th
+
+### 2021, Sunday, November 14th
+
+I did some upgrades in my main village, upgrading a hidden tesla to level 7 for 2 million gold, and upgrading 5 walls to level 10 for 500,000 elixir each, 2,000,000 elixir total, and 500,000 gold each, 500,000 gold total. I am surprised how I have managed to get almost half of my walls from level 9 to level 10 already. There are less than 89 walls left to upgrade to level 10. - 2021 Sunday November 14th
+
+### 2021, Sunday, November 21st
+
+I did some upgrades in my main village, upgrading a hidden tesla to level 7 for 2 million gold, and upgrading 6 walls to level 10 for 500,000 elixir each, 3,000,000 elixir total. I am surprised how I have managed to get almost half of my walls from level 9 to level 10 already. There are less than 85 walls left to upgrade to level 10. - 2021 Sunday November 21st
+
+### 2021, Sunday, November 28th
+
+I did some upgrades in my main village, upgrading a hidden tesla to level 7 for 2 million gold, and upgrading 7 walls to level 10 for 500,000 elixir and 500,000 gold each, 2,500,000 elixir and 1,000,000 gold total. I am surprised how I have managed to get almost half of my walls from level 9 to level 10 already. There are less than 77 walls left to upgrade to level 10. - 2021 Sunday November 28th
+
+### 2021, Sunday, December 5th
+
+I did some upgrades in my main village, upgrading my second X-B7OW to level 2 for 2 million gold, and upgrading 4 walls to level 10 for 500,000 elixir, 2,000,000 elixir total. I am surprised how I have managed to get well over half of my walls from level 9 to level 10 already. There are less than 73 walls left to upgrade to level 10. - 2021, Sunday, December 5th
+
+### 2021, Sunday, December 12th
+
+I did some upgrades in my main village, upgrading at least 7 walls to level 10, as there was a 60% off sale on walls (and a sale on other upgrades) wall upgrades from 9 to 10 cost 200,000 instead of 500,000. I began upgrading a spring trap to level 5 for 1.2 million gold. There are less than 62 walls left to upgrade to level 10. The game is now in Winter mode and has snow and other winter effects active. - 2021, Sunday, December 12th
+
+### 2021, Sunday, December 19th
+
+I did some upgrades in my main village, upgrading at least 10 walls to level 10, as there was a 60% off sale on walls (and a sale on other upgrades) wall upgrades from 9 to 10 cost 200,000 instead of 500,000. I began upgrading an archer tower to level 13 for 2.5 million gold. This has been considered a pipe dream to me for a long time, I remember when level 13 archer towers were the max level. There are less than 52 walls left to upgrade to level 10. The game is now in Winter mode and has snow and other winter effects active. - 2021, Sunday, December 19th
+
+### 2021, Sunday, December 26th
+
+I did some upgrades in my main village, upgrading at least 12 walls to level 10, as there was a 60% off sale on walls (and a sale on other upgrades) wall upgrades from 9 to 10 cost 200,000 instead of 500,000. I began upgrading my double cannon to level 13 for 2 million gold. There are less than 40 walls left to upgrade to level 10. - 2021, Sunday, December 26th
+
+### 2022, Sunday, January 2nd
+
+I did some upgrades in my main village, upgrading at least 12 walls to level 10, as there was a 60% off sale on walls (and a sale on other upgrades) wall upgrades from 9 to 10 cost 200,000 instead of 500,000. I began upgrading my geared up archer tower to level 13 for 2 .4million gold. There are less than 29 walls left to upgrade to level 10. - 2022, Sunday, January 2nd
+
+### 2022, Sunday, January 9th
+
+I did some upgrades in my main village, upgrading at least 12 walls to level 10, as there was a 60% off sale on walls (and a sale on other upgrades) wall upgrades from 9 to 10 cost 200,000 instead of 500,000. I began upgrading a cannon to level 13 for 2 million gold. There are only 4 walls left to upgrade to level 10. - 2022, Sunday, January 9th
+
+### 2022, Sunday, January 16th
+
+I did some upgrades in my main village, upgrading my last 4 walls to level 10, as there was a 60% off sale on walls (and a sale on other upgrades) wall upgrades from 9 to 10 cost 200,000 instead of 500,000. I began upgrading a cannon to level 13 for 2 million gold. I began upgrading walls to level 11, I plan to just upgrade the ones around the core of my base (center) I also found that I could have began construction on an inferno tower today. - 2022, Sunday, January 16th
+
+### 2022, Sunday, January 23rd
+
+I did some upgrades in my main village, upgrading some walls to level 11 for 500,000 gold and 500,000 elixir each, and starting construction on my first inferno tower. I also cleaned up a gem box, and that was about it. - 2022 Sunday January 23rd
+
+### 2022, Sunday, January 30th
+
+I did some upgrades in my main village, upgrading some walls to level 11 for 500,000 gold and 500,000 elixir each, and starting to upgrade another archer tower to level 13, along with my archer queen to level 21. I couldn't afford a 2nd inferno tower today. There were no new gemboxes today. That was about it. - 2022 Sunday January 30th
+
+### 2022, Sunday, February 6th
+
+I did some upgrades in my main village, upgrading some walls to level 11 for 500,000 elixir each, and began to build a second inferno tower. I am now capable of upgrading to town hall 11, but may possibly not do so, as I am already really low on space, and I also heard about a 100 building limit. There was 1 new gembox today. I got attacked twice since I last played, both attacks were unsuccessful. That was about it. - 2022 Sunday February 6th
+
+### 2022, Sunday, February 13th
+
+I did some upgrades in my main village, upgrading some walls to level 11 for 500,000 elixir each, and began upgrading another archer tower to level 13. There was 1 new gembox today. I got attacked once since I last played, although the attack was unsuccessful (a single barbarian, obviously someone was trying to drop trophies). That was about it. - 2022 Sunday February 13th
+
+### 2022, Sunday, February 20th
+
+I did some upgrades in my main village, upgrading some walls to level 11 for 500,000 elixir each, and began upgrading another archer tower to level 13. There were no new gemboxes today. The game finally forced an update, but the upgrade prices remained the same, so it appears that they are to stay that way. - 2022 Sunday February 20th
+
+### 2022, Sunday, February 27th
+
+I did some upgrades in my main village, upgrading some more walls to level 11 for 500,000 elixir each, and began upgrading another archer tower to level 13. There was 1 new gembox today. There is only 1 more archer tower to get to level 13, I will be upgrading my cannons next. - 2022 Sunday February 27th
+
+### 2022, Sunday, March 6th
+
+I did some upgrades in my main village, upgrading some more walls to level 11 for 500,000 elixir each, and began upgrading another cannon to level 13 for 2 million gold. I was going to upgrade the last level 12 archer tower to level 13, but I was about ~200,000 gold shy. There was 1 new gembox today. There is only 1 more archer tower to get to level 13, then I will continue on with cannon upgrades. - 2022 Sunday March 6th
+
+### 2022, Sunday, March 13th
+
+I did some upgrades in my main village, upgrading some more walls to level 11 for 500,000 elixir each (also 1 wall to level 11 for 500,000 gold, as I earned it from challenges), and began upgrading my last level 12 archer tower to level 13 for 2.4 million gold. I also began upgrading my skeleton spell to level 3 for 40000 dark elixir, as it is the only dark elixir thing I could afford. There was a gembox today, but it took me a while to find it. - 2022 Sunday March 13th
+
+### 2022, Sunday, March 20th
+
+I did some upgrades in my main village, upgrading some more walls to level 11 for 500,000 elixir each, and began upgrading an X-BOW to level 3 for 2.4 million gold. There weren't any gemboxes today. I did not get attacked since I last played. - 2022 Sunday March 20th
+
+### 2022, Sunday, March 27th
+
+I did some upgrades in my main village, upgrading some more walls to level 11 for 500,000 elixir each, and began upgrading a cannon to level 13 for 2 million gold, along with a hidden bomb to level 7 for 1 million gold. I found out that there were still 3 level 9 walls in hidden places/corners that I originally didn't upgrade to level 10, the games `suggested upgrades` menu pointed this out. I now officially have all walls at level 10 or higher. There was 1 gembox today. I did not get attacked since I last played. - 2022 Sunday March 27th
+
+### 2022, Sunday, April 3rd
+
+I did some upgrades in my main village, upgrading some more walls to level 11 for 500,000 elixir each, and began upgrading an XBOW to level 3 for 2.4 million gold. There was 1 gembox today. I did not get attacked since I last played. - 2022 Sunday April 3rd
+
+### 2022, Sunday, April 10th
+
+I did some upgrades in my main village, upgrading some more walls (2) to level 11 for 500,000 elixir/gold each, and began upgrading a cannon to level 13 for 2 million gold, a barracks to level 12 for 2.5 million elixir, and my barbarian king to level 27 for 46000 dark elixir. There weren't any gemboxes today. I did not get attacked since I last played. - 2022 Sunday April 10th
+
+### 2022, Sunday, April 17th
+
+I did some upgrades in my main village, upgrading some more walls (4) to level 11 for 500,000 elixir each, and began upgrading an X-BOW to level 2 for 1.4 million gold, and a hidden bomb to level 7 for 1 million gold. There was 1 gem box today. I am starting to run low on town hall 10 building upgrades. I intend to upgrade my level 8 mortar to become a multi-mortar once all the 3 million gold and below upgrades (not including walls) run out. I did not get attacked since I last played. - 2022 Sunday April 17th
+
+### 2022, Sunday, April 24th
+
+I did some upgrades in my main village, upgrading some more walls (4) to level 11 for 500,000 elixir each, and began upgrading an X-BOW to level 3 for 2.4 million gold, with some gems. There was 1 gem box today. I am starting to run low on town hall 10 building upgrades. I intend to upgrade my level 8 mortar to become a multi-mortar once all the 3 million gold and below upgrades (not including walls) run out. I did not get attacked since I last played.
+
+I moved some walls around, and expanded by base. I feel attacks may become more common when I reach town hall 11. - 2022 Sunday April 24th
+
+### 2022, Sunday, May 1st
+
+I did some upgrades in my main village, upgrading some more walls (4) to level 11 for 500,000 elixir each, and began upgrading my archer queen to level 22 for 44000 dark elixir. I did not do any other upgrades today, and there were no gem boxes. I am starting to run low on town hall 10 building upgrades. I intend to upgrade my level 8 mortar to become a multi-mortar next, and I began saving up for it today. I decided not to wait for all 3 million gold and below upgraded to go first. I got attacked once since I last played, but it was an unsuccessful attack (just a single archer being deployed) - 2022 May 1st
+
+### 2022, Sunday, May 8th
+
+I did some upgrades in my main village, upgrading some more walls (4) to level 11 for 500,000 elixir each, and began upgrading my level 8 mortar to a multi-mortar for 8 million gold. I became really bummed out, as I spent 1246 gems to get the remaining gold for the upgrade. Despite the fact that the gems won't get spent on anything if this doesn't happen, it is still hard to lose 1000 gems, especially as a free to play. The upgrade will complete in 2 weeks. I spent nearly half an hour or longer collecting from gold mines and elixir collectors, so that I would have some resources stocked up further in the base. It was pretty pointless, but I used to enjoy doing this a long time ago from time to time. The game had to be updates today. Also, I accidentally deleted screenshots 51 to 100 before the transfer, they no longer exist, and I am very disappointed in myself. - 2022 May 8th
+
+### 2022, Sunday, May 15th
+
+I did some upgrades in my main village, upgrading some more walls (5) to level 11 for 500,000 elixir each, and began upgrading a skeleton trap to max level 4 for 1.5 million gold. My mult-mortar still has over 168 hours left, so next Sunday (due to my recent schedule shift) I am going to have to remember to wait an extra hour before playing. The upgrade is about halfway done. - 2022 May 15th
+
+### 2022, Sunday, May 22nd
+
+I did some upgrades in my main village, upgrading some more walls (at least 7) to level 11 for 500,000 elixir each, and for 2 walls 500,000 gold each, and began upgrading a second mortar to level 8 for 3.0 million gold. My mult-mortar still had a little over half an hour left upon resuming, so I went and did things in the builder base, and waited for the countdown. After the upgrade finished, I was able to upgrade O.T.T.O to level 2, which I originally thought could only be done once all the objectives were reached. The upgrade did nothing.
+
+I earned an achievement for gearing up 3 buildings, and was able to level up to level 126. There were no gemboxes today. - 2022 May 22nd
+
+### 2022, Sunday, May 29th
+
+I did some upgrades in my main village, upgrading a single wall to level 11 for 500,000 gold, and began upgrading my barbarian king to level 28 for 51000 dark elixir, my last skeleton trap to max level 4 for 1.5 million gold, and a second barracks to level 12 for 2.5 million elixir. There was 1 gembox today, I discovered it much later on. - 2022 May 29th
+
+### 2022, Sunday, June 5th
+
+I did some upgrades in my main village, upgrading a hidden tesla to level 8 for 2.5 million gold, and a third barracks to level 12 for 2.5 million elixir. There was 1 gembox today, I discovered it much earlier on. Today, I didn't do any wall upgrades, I should get back to these after I upgrade the 4th barracks to level 12. To afford the upgrade today, I had to take some troops out of my barracks queue. I did this after starting the upgrade as well, so I would have extra resources next week, in case I don't remember the barracks queue. I stayed around for a long time after doing my versus battles, collection is fun, and it was just relaxing leisure gameplay. - 2022, Sunday, June 5th
+
+### 2022, Sunday, June 12th
+
+I did some upgrades in my main village, upgrading 2 spring traps to max level 4 for 1.2 million gold each, 2.4 million gold total, and a fourth and final barracks to level 12 for 2.5 million elixir. I should get back to wall upgrades next week. Today, I wanted to upgrade another hidden tesla to level 8, but I couldn't afford it, and I intend to not spend my gems. There weren't any gemboxes today. Today, I didn't do any wall upgrades. I also toured a max level base to see what things are like, I don't like the look of TH14 very much - 2022, Sunday, June 12th
+
+### 2022, Sunday, June 19th
+
+I did some upgrades in my main village, upgrading 1 spring trap to max level 4 for 1.2 million gold, and 1 hidden bomb to level 7 for 1 million gold.  There was 1 gembox today. Today, I upgraded 4 walls to level 11 for 500,000 elixir each, 2,000,000 elixir total. - 2022, Sunday, June 19th
+
+### 2022, Sunday, June 26th
+
+I did some upgrades in my main village, upgrading 2 hidden bombs to level 7 for 1 million gold each, 2 million gold total, and upgrading my Archer Queen to level 23 for 46000 dark elixir. There was 1 gembox today. Today, I upgraded 5 walls to level 11 for 500,000 elixir each, 2,500,000 elixir total.
+
+I started off with over 2.9 million gold, and after collection, I nearly had enough to upgrade my town hall to level 11 (5.5 million gold) but decided to do other upgrades. The game forced me to update before I could play. Unfortunately, the update removed all flags from the game. - 2022, Sunday, June 26th
+
+### 2022, Sunday, July 3rd
+
+I did some upgrades in my main village, a wizard tower to level 8 for 3.2 million gold, something I have wanted to do for a long time (since my iOS era of Clash of Clans gameplay) along with a seeking air mine to level 2 for 1 million gold. I couldn't afford any more gold upgrades this week, the leftover 1m+ gold will be useful for upgrades next week. I also upgraded 5 walls to level 11 for 500,000 elixir each, 2,500,000 elixir total. There were no gemboxes today - 2022, Sunday, July 3rd
+
+### 2022, Sunday, July 10th
+
+I did some upgrades in my main village, upgrading a second wizard tower to level 8 for 3.2 million gold. I couldn't afford any more gold upgrades this week. I also upgraded 5 walls to level 11 for 500,000 elixir each, 2,500,000 elixir total. There was 1 gembox today - 2022, Sunday, July 10th
+
+### 2022, Sunday, July 17th
+
+I did some upgrades in my main village, upgrading a giant bomb to level 4 for 2.4 million gold. I couldn't afford any more gold upgrades this week. I also upgraded 6 walls to level 11 for 500,000 elixir each, 3,000,000 elixir total. I received 500,000 free elixir from a trader, allowing me to upgrade a 6th wall. There was no gembox available this week. - 2022, Sunday, July 17th
+
+### 2022, Sunday, July 24th
+
+I did some upgrades in my main village, upgrading my archer queen to level 24 for 48,000 dark elixir, then I began upgrading a hidden tesla to level 8 for 2.5 million gold. I couldn't afford any more gold upgrades this week. I also upgraded 5 walls to level 11 for 500,000 elixir each, 2,500,000 elixir total. There was no gembox available this week. - 2022, Sunday, July 24th
+
+### 2022, Sunday, July 31st
+
+I did some upgrades in my main village, upgrading an air defense to level 8 for 3.5 million gold. I couldn't afford any more gold upgrades this week. I also upgraded 5 walls to level 11 for 500,000 elixir each, 2,500,000 elixir total. There was 1 gembox available this week. - 2022, Sunday, July 31st
+
+### 2022, Sunday, August 7th
+
+I did some upgrades in my main village, upgrading my last skeleton trap to max level 4 for 1.5 million gold. I couldn't afford any more gold upgrades this week. I also upgraded 4 walls to level 11 for 500,000 elixir each, 2,000,000 elixir total. There was 1 gembox available this week. I purposefully spent less this week, so that I would have more for upgrades next week, I could have upgraded a giant bomb for 2.4 million gold, but I needed the additional 0.9 million gold. - 2022, Sunday, August 7th
+
+### 2022, Sunday, August 14th
+
+I did some upgrades in my main village, upgrading a wizard tower to level 8 for 3.2 million gold. I couldn't afford any more gold upgrades this week. I also upgraded 7 walls to level 11 for 500,000 elixir each, 3,500,000 elixir total. There was 1 gembox available this week. I purposefully spent a bit less this week, so that I would have more for upgrades next week. - 2022, Sunday, August 14th
+
+### 2022, Sunday, August 21st
+
+I did some upgrades in my main village, upgrading my fourth wizard tower to level 8 for 3.2 million gold. I couldn't afford any more gold upgrades this week. I also upgraded 7 walls to level 11 for 500,000 elixir each, 3,500,000 elixir total. There wasn't any gemboxes available this week. I purposefully spent a bit less this week, so that I would have more for upgrades next week. I received a few 10 year anniversary obstacles, and also began upgrading my barbarian king to level 29. - 2022, Sunday, August 21st
+
+### 2022, Sunday, August 28th
+
+I did some upgrades in my main village, upgrading a hidden tesla to level 7 for 2.5 million gold. I couldn't afford any more gold upgrades this week. I also upgraded 5 walls to level 11 for 500,000 elixir each, 2,500,000 elixir total. There was 1 gembox available this week. I purposefully spent a bit less this week, so that I would have more for upgrades next week. - 2022, Sunday, August 28th
+
+### 2022, Sunday, September 4th
+
+I did some upgrades in my main village, upgrading a hidden tesla to level 7 for 2.5 million gold, making all of my hidden teslas level 7 or higher. I couldn't afford any more gold upgrades this week. I also upgraded 5 walls to level 11 for 500,000 elixir each, 2,500,000 elixir total. There was 1 gembox available this week. I spent some time browsing around, then quit. - 2022, Sunday, September 4th
+
+### 2022, Sunday, September 11th
+
+I did some upgrades in my main village, upgrading a mortar to level 8 for 3 million gold. I couldn't afford any more gold upgrades this week. I also upgraded 5 walls to level 11 for 500,000 elixir each, 2,500,000 elixir total. There weren't any gemboxes available this week. I spent some time browsing around, then quit. - 2022, Sunday, September 11th
+
+### 2022, Sunday, September 18th
+
+I did some upgrades in my main village, upgrading my 4th mortar to level 8 for 3 million gold. I couldn't afford any more gold upgrades this week. I also upgraded 5 walls to level 11 for 500,000 elixir each, 2,500,000 elixir total, and upgraded my barbarian king to level 30 for 56000 dark elixir. There was 1 gem box available this week. I spent some time browsing around, then quit. - 2022, Sunday, September 18th
+
+### 2022, Sunday, September 25th
+
+I did some upgrades in my main village, upgrading an infern tower to level 2 for 3 million gold. I couldn't afford any more gold upgrades this week. I also upgraded 6 walls to level 11 for 500,000 elixir each, 3,000,000 elixir total. There was 1 gem box available this week. - 2022, Sunday, September 25th
+
+### 2022, Sunday, October 2nd
+
+I did some upgrades in my main village, upgrading an inferno tower to level 3 for 2.25 million gold. All upgrades were half price again this week. I couldn't afford any more gold upgrades this week. I also upgraded my barbarian king to level 31 for 28500 dark elixir, along with 9 walls to level 11 for 250,000 elixir each, 2,300,000 elixir total, and a tenth wall to level 10 for 250000 gold. There weren't any gemboxes available this week. - 2022, Sunday, October 2nd
+
+### 2022, Sunday, October 9th
+
+I did some upgrades in my main village, upgrading a wizard tower to level 9 for 2.1 million gold. All upgrades were half price this week. It may not last longer than 1 week. I couldn't afford any more gold upgrades this week. I also upgraded my barbarian king to level 31 for 28500 dark elixir, along with 11 walls to level 11 for 250,000 elixir each, 2,750,000 elixir total. There was 1 gembox available this week. - 2022, Sunday, October 9th
+
+### 2022, Sunday, October 16th
+
+I did some upgrades in my main village, upgrading an inferno tower to level 2 for 2.5 million gold. Upgrades were no longer half price this week, after the game updated I couldn't afford any more gold upgrades this week. I also upgraded 4 walls to level 11 for 500,000 elixir each, 2,000,000 elixir total. There was 1 gembox available this week. - 2022, Sunday, October 16th
+
+### 2022, Sunday, October 23rd
+
+I did some upgrades in my main village, upgrading an air sweeper to level 6 for 2.5 million gold. It appears that one of my buildings was deleted, but I can't figure out what it was. I also upgraded 5 walls to level 11 for 500,000 elixir each, 2,500,000 elixir total, and my archer queen to level 25 for 50,000 dark elixir. There weren't any gemboxes available this week. - 2022, Sunday, October 23rd
+
+### 2022, Sunday, October 30th
+
+I did some upgrades in my main village, upgrading a seeking air mine to level 3 for 2.1 million gold. I also upgraded 5 walls to level 11 for 500,000 elixir each, 2,500,000 elixir total. There was 1 gembox available this week. - 2022, Sunday, October 30th
+
+### 2022, Sunday, November 6th
+
+I did some upgrades in my main village, upgrading an air defense system to level 8 for 3.0 million gold. I also upgraded 5 walls to level 11 for 500,000 elixir each, 2,500,000 elixir total. There was 1 gembox available this week. - 2022, Sunday, November 6th
+
+### 2022, Sunday, November 13th
+
+I did some upgrades in my main village, upgrading a seeking air mine to level 3 for 2.1 million gold. I also upgraded 6 walls to level 11 for 500,000 elixir each, 3,000,000 elixir total. There was 1 gembox available this week. I finally found out what went missing in my base: my 2nd dark barracks. Along with that, 3 of the normal barracks were removed, and my spell factory may have also been removed (but not my dark spell factory) this was a really stupid move for the game, I didn't even get refunded for it. - 2022, Sunday, November 13th
+
+### 2022, Sunday, November 20th
+
+I did some upgrades in my main village, upgrading my Archer Queen to level 26 for 52,000 dark elixir, and upgrading a bomb tower to level 4 for 2.6 million gold. I also upgraded 4 walls to level 11 for 500,000 elixir each, 2,000,000 elixir total. There weren't any gemboxes available this week. This week, I started 1-2 hours late, as my phone died overnight. - 2022, Sunday, November 20th
+
+### 2022, Sunday, November 27th
+
+I did some upgrades in my main village, upgrading a seeking air mine to level 3 for 2.1 million gold. I also upgraded 5 walls to level 11 for 500,000 elixir each, 2,500,000 elixir total. I am getting close to being a maxed out town hall 10 player. I am unsure whether I will max out my walls, or my buildings first. There was 1 gembox available this week. - 2022, Sunday, November 27th
+
+### 2022, Sunday, December 4th
+
+I did some upgrades in my main village, upgrading a second air defense building to level 8 for 3.0 million gold. I also upgraded 4 walls to level 10 for 500,000 elixir each, 2,500,000 elixir total. I am getting close to being a maxed out town hall 10 player. I am unsure whether I will max out my walls, or my buildings first. I have 43 walls left to get to level 11. There weren't any gemboxes available this week. - 2022, Sunday, December 4th
+
+### 2022, Sunday, December 11th
+
+I did some upgrades in my main village, upgrading my 2nd bomb tower to level 4 for 2.6 million gold. I also upgraded 5 walls to level 10 for 500,000 elixir each, 2,500,000 elixir total. Additionally, I upgraded my poison spell to level 4 for 43,000 dark elixir. I am getting close to being a maxed out town hall 10 player. I am unsure whether I will max out my walls, or my buildings first. I have 38 walls left to get to level 11, there is only 1 crucial wall section left to upgrade. There was 1 gembox available this week. - 2022, Sunday, December 11th
+
+### 2022, Sunday, December 18th
+
+I did some upgrades in my main village, upgrading a giant bomb to level 4 for 2 million gold. I also upgraded 6 walls to level 10 for 500,000 elixir each, 3,000,000 elixir total. I am getting close to being a maxed out town hall 10 player. I am sure I will max out my walls before my buildings. I have 32 walls left to get to level 11, I finished the last crucial section today (2022, December 18th) and only extra pieces are left. There was 1 gembox available this week. The game had an update this week. At the end of the session, I toured the singleplayer campaign, a lot has changed since I last checked it. - 2022, Sunday, December 18th
+
+### 2022, Sunday, December 25th
+
+I did some upgrades in my main village, upgrading a second air sweeper to level 6 for 2.5 million gold. I also upgraded 4 walls to level 10 for 500,000 elixir each, 2,000,000 elixir total. I am getting close to being a maxed out town hall 10 player. I am sure I will max out my walls before my buildings. I have 28 walls left to get to level 11, I finished the last crucial section last week (2022, December 18th) and only extra pieces are left. I focused on some pieces behind an archer tower today, so that I wouldn't forget them later on. There was 1 gembox available this week. At the beginning of my session, I found that I forgot to turn my Wi-Fi back on before starting. There weren't any actual connection issues today. I eventually wrapped up and quit. - 2022, Sunday, December 25th
+
+### 2023, Sunday, January 1st
+
+I did some upgrades in my main village, upgrading an X-BOW to level 4 for 3.4 million gold. I also upgraded 5 walls to level 10 for 500,000 elixir each, 2,500,000 elixir total. I am getting close to being a maxed out town hall 10 player. I am sure I will max out my walls before my buildings. I have 23 walls left to get to level 11, I finished the last crucial section two weeks ago (on 2022, December 18th) and only extra pieces are left. I focused on some pieces near an archer tower today, so that I wouldn't forget them later on. There weren't any gemboxes available this week. I eventually wrapped up and quit. - 2023, Sunday, January 1st
+
+### 2023, Sunday, January 8th
+
+I did some upgrades in my main village, upgrading a seeking air mine to level 3 for 2.1 million gold. I also upgraded 4 walls to level 10 for 500,000 elixir each, 2,000,000 elixir total. I am getting close to being a maxed out town hall 10 player. I am sure I will max out my walls before my buildings. I have 19 walls left to get to level 10, I finished the last crucial section three weeks ago (on 2022, December 18th) and only extra pieces are left. I focused on the remaining segment that I have been working on for 2 weeks. There are less than 10 building/trap upgrades left before I am a max town hall 10 player (excluding troop and spell upgrades) There was 1 gem box available this week. I eventually wrapped up and quit. - 2023, Sunday, January 8th
+
+### 2023, Sunday, January 15th
+
+I did some upgrades in my main village, upgrading my 4th air defense unit to level 8 for 3 million gold. I also upgraded 5 walls to level 10 for 500,000 elixir each, 2,500,000 elixir total. I am getting close to being a maxed out town hall 10 player. I am sure I will max out my walls before my buildings. I have 14 walls left to get to level 11, I finished the last crucial section four weeks ago (on 2022, December 18th) and only extra pieces are left. I focused on a new segment on the top of my base. There are less than 10 building/trap upgrades left before I am a max town hall 10 player (excluding troop and spell upgrades) There was 1 gem box available this week. I eventually wrapped up and quit. - 2023, Sunday, January 15th
+
+### 2023, Sunday, January 22nd
+
+I did some upgrades in my main village, upgrading a seeking air mine to level 3 for 2.1 million gold. I also upgraded 6 more walls to level 10 for 500,000 elixir each, 3,000,000 elixir total. I am getting close to being a maxed out town hall 10 player. I am sure I will max out my walls before my buildings. I have 8 walls left to get to level 11, I finished the last crucial section five weeks ago (on 2022, December 18th) and only extra pieces are left. However, I have now noted that 3-5 walls that need upgrade are not visible to me. I focused on a new segment on the top of my base. There are less than 9 building/trap upgrades left before I am a max town hall 10 player (excluding troop and spell upgrades) There weren't any gem boxes available this week. I eventually wrapped up and quit. - 2023, Sunday, January 22nd
+
+### 2023, Sunday, January 19th
+
+I did some upgrades in my main village, upgrading a giant bomb to level 4 for 2 million gold. I also upgraded 4 more walls to level 10 for 500,000 elixir each, 2,000,000 elixir total. I am getting close to being a maxed out town hall 10 player. I am sure I will max out my walls before my buildings. I have 4 walls left to get to level 10, I finished the last crucial section six weeks ago (on 2022, December 18th) and only extra pieces are left, next Sunday will be the day I get all of my walls to level 11. There are less than 8 building/trap upgrades left before I am a max town hall 10 player (excluding troop and spell upgrades) There was 1 gem box available this week. I eventually wrapped up and quit. - 2023, Sunday, January 29th
+
+### 2023, Sunday, February 5th
+
+I did some upgrades in my main village, upgrading a second X-BOW to level 4 for 3.4 million gold. I also upgraded 4 more walls to level 10 for 500,000 elixir each, 2,000,000 elixir total. I am getting close to being a maxed out town hall 10 player. All of my walls are now level 11, max level for town hall 10. This is a massive achievement for me. There are less than 7 building/trap upgrades left before I am a max town hall 10 player (excluding troop and spell upgrades) There was 1 gem box available this week. I eventually wrapped up and quit. - 2023, Sunday, February 5th
+
+### 2023, Sunday, February 12th
+
+I did some upgrades in my main village, upgrading a giant bomb to level 4 for 2 million gold. I also upgraded an army camp to level 8 for 2.5 million elixir. I am getting close to being a maxed out town hall 10 player. There are less than 6 building/trap upgrades left before I am a max town hall 10 player (excluding troop and spell upgrades) There weren't any gem boxes available this week. I also sold a potion for 10 gems. I eventually wrapped up and quit. - 2023, Sunday, February 12th
+
+### 2023, Sunday, February 19th
+
+I did some upgrades in my main village, upgrading a final giant bomb to level 4 for 2 million gold. I also upgraded a second army camp to level 8 for 2.5 million elixir. I am getting close to being a maxed out town hall 10 player. There are less than 5 building/trap upgrades left before I am a max town hall 10 player (excluding troop and spell upgrades) There was 1 gem box available this week. I also sold 3 potions for 10 gems. I eventually wrapped up and quit. - 2023, Sunday, February 19th
+
+### 2023, Sunday, February 26th
+
+I did some upgrades in my main village, upgrading my second inferno tower to level 3 for 3.8 million gold. I was disappointed that I couldn't upgrade a wizard tower this week, but this was of higher priority. I also upgraded a third army camp to level 8 for 2.5 million elixir. I am getting close to being a maxed out town hall 10 player. There are less than 4 building/trap upgrades left before I am a max town hall 10 player (excluding troop and spell upgrades) There was 1 gem box available this week. . I eventually wrapped up and quit. - 2023, Sunday, February 26th
+
+### 2023, Sunday, March 5th
+
+I did some upgrades in my main village, upgrading my third X-BOW to level 4 for 3.4 million gold. I also upgraded a fourth army camp to level 8 for 2.5 million elixir, and queued some dragons into my barracks. I am getting close to being a maxed out town hall 10 player. There are 4 building upgrades left before I am a max town hall 10 player. There weren't any gemboxes available this week. I almost couldn't upgrade my X-BOW this week, as I didn't notice the free 500k gold until near the end of my session. I also moved one of my archer towers in preparation for town hall 11, although I left a vulnerable opening in my base in the process. I doubt anyone my rank could penetrate my base through this, plus I don't get invaded anymore anyways. If a rusher or dropper attempts to attack in this location, the attack will likely be expelled quickly, unless they have troop levels similar to mine. I eventually wrapped up and quit. - 2023, Sunday, March 5th
+
+### 2023, Sunday, March 12th
+
+I could not afford any upgrades in my main village today. I am getting close to being a maxed out town hall 10 player, and I am really excited for town hall 11. There are 5 building upgrades left before I am a max town hall 10 player (unless the dark barracks is capable of being upgraded to level 8, then there are 6 upgrades left) I still intend to max out all buildings before upgrading to town hall 11, with the 2 exceptions being the heroes (Barbarian King and Archer Queen) along with laboratory upgrades. There was 1 gembox available this week. I also sold some magic items this week. I waited around and collected resources, and went through the upgrades available once I get to town hall 11. I eventually wrapped up and quit. - 2023, Sunday, March 12th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Clan Castle level 6** | `0` | `4,200,000` |
+| **Dark barracks level 7** | `0` | `4,000,000` |
+| **Wizard tower level 9** | `3,700,000` | `0` |
+| **Wizard tower level 9** | `3,700,000` | `0` |
+| **Wizard tower level 9** | `3,700,000` | `0` |
+| **Overall total (excluding town hall)** | `11,100,000` | `8,200,000` |
+| **Overall total (including town hall)** | `15,100,000` | `8,200,000` |
+
+| **Town hall level 11** | `4,000,000 gold` |
+|---|---|
+
+### 2023, Sunday, March 19th
+
+I had a long session today. I am getting close to being a maxed out town hall 10 player, and I am really excited for town hall 11. There are 3 building upgrades left before I am a max town hall 10 player (unless the dark barracks is capable of being upgraded to level 8, then there are 5 upgrades left) I still intend to max out all buildings before upgrading to town hall 11, with the 2 exceptions being the heroes (Barbarian King and Archer Queen) along with laboratory upgrades. There was 1 gembox available this week. I upgraded a wizard tower to level 9 today for 3.7 million gold, and a dark barracks to level 7 for 4 million elixir. I got attacked since I last played, and surprisingly, the attack was successful. The attacker took advantage of the little gap I left up in my village, which was a huge weakness, but they weren't able to get 2 stars (they got 49%, 1 star) I just didn't expect someone of this level to go after me. I temporarily moved buildings to cover any openings to prevent this from happening again. Luckily, I didn't lose very many resources. I also sold some magic items this week. I waited around briefly and collected resources. I eventually wrapped up and quit. - 2023, Sunday, March 19th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Clan Castle level 6** | `0` | `4,200,000` |
+| **Wizard tower level 9** | `3,700,000` | `0` |
+| **Wizard tower level 9** | `3,700,000` | `0` |
+| **Overall total (excluding town hall)** | `7,400,000` | `4,200,000` |
+| **Overall total (including town hall)** | `11,400,000` | `4,200,000` |
+
+<!-- | **Dark barracks level 8** | `0` | `4,000,000` | !-->
+
+| **Town hall level 11** | `4,000,000 gold` |
+|---|---|
+
+### 2023, Sunday, March 26th
+
+I had a very long session today. I am getting close to being a maxed out town hall 10 player, and I am really excited for town hall 11. There are 3 building upgrades left before I am a max town hall 10 player (unless the clan castle is capable of being upgraded to level 7, then there are 4 upgrades left) I still intend to max out all buildings before upgrading to town hall 11, with the 2 exceptions being the heroes (Barbarian King and Archer Queen) along with laboratory upgrades. There weren't any gemboxes available this week, and I couldn't afford any gold or elixir upgrades. I upgraded my archer queen to level 28 for 58,000 dark elixir. I did not get attacked since I last played. I also sold some magic items this week. I waited around briefly and collected resources. I eventually wrapped up and quit. - 2023, Sunday, March 26th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Clan Castle level 6** | `0` | `4,200,000` |
+| **Wizard tower level 9** | `3,700,000` | `0` |
+| **Wizard tower level 9** | `3,700,000` | `0` |
+| **Overall total (excluding town hall)** | `7,400,000` | `4,200,000` |
+| **Overall total (including town hall)** | `11,400,000` | `4,200,000` |
+
+<!-- | **Dark barracks level 8** | `0` | `4,000,000` | !-->
+
+| **Town hall level 11** | `4,000,000 gold` |
+|---|---|
+
+### 2023, Sunday, April 2nd
+
+I had a long session today. I am getting close to being a maxed out town hall 10 player, and I am really excited for town hall 11. There is 1 building upgrade left before I am a max town hall 10 player (unless the clan castle is capable of being upgraded to level 7, then there are 2 upgrades left) I still intend to max out all buildings before upgrading to town hall 11, with the 2 exceptions being the heroes (Barbarian King and Archer Queen) along with laboratory upgrades. There was 1 gembox available this week. I upgraded my clan castle to level 6, and a 3rd wizard tower to level 9. I got attacked since I last played, my base was 100% destroyed by another town hall 10 player, who was much less advanced. I didn't lose very many resources. I waited around briefly and collected resources. I eventually wrapped up and quit. - 2023, Sunday, April 2nd
+
+### 2023, Sunday, April 9th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Wizard tower level 9** | `3,700,000` | `0` |
+| **Overall total (excluding town hall)** | `3,700,000` | `0` |
+| **Overall total (including town hall)** | `7,700,000` | `0` |
+
+<!-- | Clan Castle level 7 | `0` | `0` | !-->
+
+| **Town hall level 11** | `4,000,000 gold` |
+|---|---|
+
+I had a very long session today. I am very close to being a maxed out town hall 10 player, and I am really excited for town hall 11. I upgraded the last building today (wizard tower level 9) but it won't be completed until next week.  There was 1 gembox available this week. I spent a very long time playing this week, as it took longer in the builder base, and I also played the offline campaign for a while, and was almost able to upgrade my town hall to level 11 today, but then ran low on battery, and quit. I decided not to come back to it this week, as I want to see my base entirely maxed out before I start the upgrade. I did not get attacked since I last played. I eventually wrapped up and quit. - 2023, Sunday, April 9th
+
+### 2023, Sunday, April 16th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **None** | `0` | `0` |
+| **Overall total (excluding town hall)** | `0` | `0` |
+| **Overall total (including town hall)** | `4,000,000` | `0` |
+
+<!-- | Clan Castle level 7 | `0` | `0` | !-->
+
+| **Town hall level 11** | `4,000,000 gold` |
+|---|---|
+
+<!-- MESSAGE FOR 2023 APRIL 9TH OR 2023 APRIL 16TH
+I never thought I would achieve this in Clash of Clans, but I am a max level town hall 10 player. I remember this being an achievement most people only got by paying tons of money. For the most part, I have done this as a free to play. I may have spent some money in the past, but no more than $40. I am excited for town hall 11
+!-->
+
+I had a normal length session today. I am now a max town hall 10, and I am really excited for town hall 11. I never thought I would achieve this in Clash of Clans, but I am a max level town hall 10 player. I remember this being an achievement most people only got by paying tons of money. For the most part, I have done this as a free to play. I may have spent some money in the past, but no more than $40. I am excited for town hall 11 I began upgrading my town hall to level 11 today, and also began upgrading my barbarian to level 7 for 2.1 million elixir, as I almost had an overflow. I moved the master building to my main village, so that I can do 6 upgrades a week. I plan to upgrade my gold mines and elixir collectors for the first 3 weeks of town hall 11, while also doing other upgrades. There weren't any gemboxes available this week. I did not get attacked since I last played. I eventually wrapped up and quit. - 2023, Sunday, April 16th
+
+### 2023, Sunday, April 23rd
+
+I had a long length session today. I reached town hall 11 today. The new town hall level showed up as an achievement on the screen, but due to edge screen issues, I couldn't get a screenshot of it. I began building all of the new buildings, except for the Eagle Artillery. I plan to upgrade my gold mines and elixir collectors for the first 3 weeks of town hall 11, while also doing other upgrades. I only upgraded 4 gold mines this week, I decided it would be better this way. I built a new wizard tower and XBOW today, along with a new cannon and archer tower. I also built a Grand Warden housing, and unlocked the Grand Warden. I also built 25 new walls, and got all of them to level 6, along with an outer layer of level 7 walls, and a new level 11 wall. I don't have anywhere to build, so these walls are just in a random part of my village. They will likely be moved in the future. I also moved my barracks and spell factories back into the corners of the village, and built a tornado trap. Additionally, I began to upgrade my freeze spell to level 3. There was 1 gembox available this week. I came very close to level 133 today. I did not get attacked since I last played. I eventually wrapped up and quit. - 2023, Sunday, April 23rd
+
+### 2023, Sunday, April 30th
+
+<!-- Notes 2023.04.30
+Attacked, 100% destruction, not very punishing resource losses
+3 gold mines, 3 elixir collectors upgraded
+Upgrading lava hound to level 3
+Upgrading firecrackers 2 to level 7
+Upgrading hog glider to level 5
+!-->
+
+I had a long length session today. I got attacked since I last played, it was a 3 star attack. Luckily, I didn't lose enough resources to negatively affect my session. I plan to upgrade my gold mines and elixir collectors for the first 3 weeks of town hall 11, while also doing other upgrades. I upgraded the last 3 gold mines this week, and also upgraded 3 elixir collectors. I forgot to upgrade some walls today before starting the 6th upgrade. I began to upgrade my lava hound to level 3 as well. There weren't any gemboxes available this week. I leveled up to level 133 since I last played today. I eventually wrapped up and quit. - 2023, Sunday, April 30th
+
+### 2023, Sunday, May 7th
+
+I had a very long length session today.
+
+I did not get attacked since I last played.
+
+I received a large amount of loot from the season ending.
+
+I plan to upgrade my gold mines and elixir collectors for the first 3 weeks of town hall 11, while also doing other upgrades.
+
+I upgraded 3 elixir collectors this week, but couldn't upgrade the final elixir collector, so I am saving that for next week.
+
+I also upgraded my Clan Castle to level 7, and 2 gold storages to level 12.
+
+I did not do any wall upgrades today.
+
+I saved up 5.3 million gold before quitting, so that no matter what happens, I will be able to afford to build the Eagle Artillery next week.
+
+There was 1 gembox available today, I had to cancel an upgrade, and clean it up, then resume the upgrade.
+
+I leveled up to level 134 since I last played today, I feel these level-ups will be frequent for a little while.
+
+I also did some single player challenges today, completing the last 4 available for a town hall 11 player.
+
+I eventually wrapped up and quit. - 2023, Sunday, May 7th
+
+### 2023, Sunday, May 14th
+
+<!-- Notes 2023.05.14
+Eagle artillery bigger than expected
+Long session, lots of collection
+Clock tower boost activated late
+Upgrading bowler to level 2 in the laboratory, while it was being upgraded to level 9. Didn't know this was possible.
+!-->
+
+I had a very long length session today.
+
+I did not get attacked since I last played.
+
+I began to build an Eagle Artillery building today for 6 million gold, it was a lot bigger than expected, and I had to move several things to fit it inside my base.
+
+I finished upgrading gold mines and elixir collectors today, although technically it will be done by next week, as I began to upgrade the last elixir collector this week.
+
+I also began to upgrade a dark elixir drill to level 8.
+
+Additionally, I upgraded my laboratory to level 9, a gold storage building to level 12, and an elixir storage building to level 12.
+
+Earlier in the session, I upgraded my newest archer tower to level 3, and my newest cannon to level 4.
+
+I also began upgrading my bowler to level 2 in the laboratory, while it was being upgraded to level 9. 
+
+I didn't know this was possible (to upgrade something in the laboratory while the laboratory itself is upgrading)
+
+I did not do any wall upgrades today.
+
+There were no gem boxes available this week.
+
+I did not level up this week.
+
+I did lots of collection, out of a mixture of procrastination, addiction, and boredom.
+
+I eventually wrapped up and quit. - 2023, Sunday, May 14th
+
+### 2023, Sunday, May 21st
+
+<!-- Notes 2023.05.21
+Game update
+Builder base change, don't like very much, but don't strongly dislike
+Miss the old builder base
+Felt weird going from BB to home village, normally isn't much of an optical change for me
+Feels like I am now earning less per week in the builder base
+Builder potion
+Several upgrades (cannon lvl 5, lvl 6, lvl 7, archer tower lvl 4, lvl 5, wizard tower lvl 2, lvl 3, xbow lvl 2, elixir storage lvl 12, gold storage lvl 12, grand warden lvl 2, several walls lvl 7, lvl 8, lvl 9)
+Gem box
+Eventually wrapping up
+!-->
+
+I had a very long length session today.
+
+I did not get attacked since I last played.
+
+The game had a massive update before I could start playing. It did a massive change to the builder base, where attacks are done in 2 phases. My base was completely moved around, and I can't revert it. I don't like it very much, but I don't have the strongest dislike for it. I miss the old builder base. It also feels like I am now earning less per week in the builder base.
+
+It additionally felt weird going from the builder base to my home village, it normally isn't too much of an optical change for me. There were also lots of graphical changes, and times to how long it takes for buildings to upgrade.
+
+I did many upgrades this week, and used a builder potion. I upgraded a cannon to level 5, then to level 6, and then to level 7, an archer tower to level 4, then to level 5, a wizard tower to level 2 and then level 3, an X-BOW to level 2, an elixir storage to level 12, a gold storage to level 12, my grand warden to level 2, and several walls to level 7, 8, and 9.
+
+There was 1 gem box available this week.
+
+I leveled up to level 135 this week.
+
+I waited out the entire builder potion boost, and continued to play.
+
+I eventually wrapped up and quit. - 2023, Sunday, May 21st
+
+### 2023, Sunday, May 28th
+
+I had a very long length session today.
+
+I did not get attacked since I last played.
+
+I started the session strongly disliking the new builder base, but became a lot friendlier towards it later on.
+
+I did many upgrades this week. I upgraded a cannon to level 8, an archer tower to level 6, a wizard tower to level 4, 2 elixir storage structures to level 12, and several walls to level 8 and 9.
+
+I began to upgrade O.T.T.Os outpost to level 3. So far, nobody has reached 100% or more on my builder base, which is odd.
+
+There was 1 gem box available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, May 28th
+
+### 2023, Sunday, June 4th
+
+I had a very long length session today.
+
+I did not get attacked since I last played.
+
+I have been dreading playing the game due to the new builder base. The home village is much more fun now.
+
+I did many upgrades this week. I upgraded a cannon to level 9, an archer tower to level 7, a wizard tower to level 5, a multi-mortar to level 9, my archer queen to level 29, my grand warden to level 3, and several walls to level 9, 10, and 11. I plan to upgrade the other 2 geared up defenses soon.
+
+I began to upgrade O.T.T.Os outpost to level 4. Somebody got 100% or more on my builder base for the first time since the update.
+
+There weren't any gemboxes available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, June 4th
+
+### 2023, Sunday, June 11th
+
+I had a very long length session today.
+
+I did not get attacked since I last played.
+
+I did fewer upgrades this week. I upgraded a cannon to level 10, an archer tower to level 8, a wizard tower to level 6, and several walls to level 10, and 11. I plan to upgrade the other 2 geared up defenses soon. I am getting to the point where I can do fewer upgrades per week again. I found that with my current town hall level, I can additionally get my mortars to level 10.
+
+There was 1 gembox available this week. I exceeded 5000 gems today.
+
+I eventually wrapped up and quit. - 2023, Sunday, June 11th
+
+### 2023, Sunday, June 18th
+
+I had a very long length session today.
+
+I did not get attacked since I last played.
+
+I did fewer upgrades this week. I upgraded a cannon to level 11, an archer tower to level 9, my archer queen to level 30, and several walls to level 10, and 11. I plan to upgrade the other 2 geared up defenses soon. I am getting to the point where I can do fewer upgrades per week again. I almost have all of my walls to level 11 again.
+
+There weren't any gemboxes available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, June 18th
+
+### 2023, Sunday, June 25th
+
+I had a very long length session today.
+
+I did not get attacked since I last played.
+
+I did fewer upgrades this week. I upgraded a double cannon to level 14, an archer tower to level 10, and several walls to level 11. I plan to upgrade the other geared up defense (archer tower) soon. I am getting to the point where I can do fewer upgrades per week again. I almost have all of my walls to level 11 again, there are only 6 left to upgrade.
+
+There was 1 gembox available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, June 25th
+
+### 2023, Sunday, July 2nd
+
+I had a long length session today.
+
+I did not get attacked since I last played.
+
+I did fewer upgrades this week. I upgraded a cannon to level 12, an archer tower to level 11, and 6 walls to level 11. All of my walls are level 11 again. I plan to upgrade the other geared up defense (archer tower) soon. I am getting to the point where I can do fewer upgrades per week again.
+
+There weren't any gemboxes available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, July 2nd
+
+### 2023, Sunday, July 9th
+
+I had a long length session today.
+
+I got attacked since I last played, the defense was unsuccessful, and I lost a lot of resources, but was still able to do 2 upgrades today.
+
+I did 2 upgrades this week. I upgraded a cannon to level 13, an archer tower to level 13, and 4 walls to level 13. Just 297 to go...
+
+I plan to upgrade the other geared up defense (archer tower) soon. I am able to do fewer upgrades per week.
+
+There was 1 gembox available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, July 9th
+
+### 2023, Sunday, July 16th
+
+I had a long length session again today.
+
+I did not get attacked since I last played.
+
+I forced myself to have time to play today, and had fun. I have been skipping most of my gaming sessions this week due to time and battery issues, but I am now allowed to skip my Clash of Clans or Boom Beach sessions, as per Waffle House Index rules.
+ 
+I did 5 upgrades this week, with only 1 building upgrade. I upgraded a cannon to level 13, a skeleton spell to level 4, and 3 walls to level 13. Just 294 to go...
+
+I plan to upgrade the other geared up defense (archer tower) soon. I am able to do fewer upgrades per week.
+
+I have been moving max levels walls around my town hall for safety, rather than the Northeastern corner.
+
+There was 1 gembox available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, July 16th
+
+### 2023, Sunday, July 23rd
+
+I had a long length session again today.
+
+I got attacked 3 times since I last played, of which all 3 were unsuccessful, but resulted in significant resource losses. I could have done other upgrades today if it wasn't for this, although I don't think it would have had an effect, as gold mines, elixir collectors, and dark elixir drills can only hold so much.
+
+My session started much later in the day today, as my vacation significantly threw me off today.
+
+I did 3 upgrades this week, with only 1 building upgrade. I upgraded a cannon to level 15, and 2 walls to level 13. Just 292 to go...
+
+I plan to upgrade the other geared up defense (archer tower) soon. I am able to do fewer upgrades per week.
+
+There were no gemboxes available this week.
+
+For my notes file, I noticed that I leveled up to level 137 last week, and I also sorted the session logs, adding a heading section for each week of notes.
+
+I eventually wrapped up and quit. - 2023, Sunday, July 23rd
+
+### 2023, Sunday, July 30th
+
+I had a long length session again today.
+
+I got attacked 1 time since I last played, of which I lost a lot of resources, and was unable to start any new upgrades today in my home village because of this. I did upgrade 2 walls to level 13, with 290 to go. I considered upgrading a hidden bomb of air bomb, but decided to wait for now.
+
+My session started much earlier in the day today compared to last week.
+
+I did 2 upgrades this week, with no building upgrades, upgrading 2 walls to level 13. Just 290 to go...
+
+I plan to upgrade the other geared up defense (archer tower) soon. I am able to do fewer upgrades per week.
+
+There was 1 gembox available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, July 30th
+
+### 2023, Sunday, August 6th
+
+I had a long length session again today.
+
+I did not get attacked since I last played, but I still wasn't able to do very many upgrades this week. 
+
+My session started earlier in the day today compared to last week.
+
+I did 4 upgrades this week, with 1 building upgrade, upgrading my double cannon to level 15, and upgrading 3 walls to level 13. Just 287 to go...
+
+I plan to upgrade the other geared up defense (archer tower) soon. I am able to do fewer upgrades per week.
+
+There was 1 gembox available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, August 6th
+
+### 2023, Sunday, August 13th
+
+I had a long length session again today.
+
+I got attacked 3 times since I last played, 1 attack was successful, while the other 2 were only successful in stealing resources. I was surprised by how far one person got solely with super goblins, wall bombers, jump and lightning spells. The 1 successful attack was also disappointing, as the player that won was nearly 3x lower level than me (being level 54) they seem to prioritize offensives only, as their main base was a town hall 11, with every single defensive building being level 1. It doesn't seem fair how powerful level 2 electrodragons are. There is no way I can defend against them (kind of like my all-night witch builder base attacks, but those are not nearly as effective)
+
+My session started earlier in the day today compared to last week.
+
+I did only 2 upgrades this week, with 1 building upgrade, upgrading my wizard tower to level 7, and upgrading 1 wall to level 13. Just 286 to go...
+
+I was considering upgrading an archer tower to level 13, but felt that this wizard tower was more important for the time.
+
+I plan to upgrade the other geared up defense (archer tower) soon. I am able to do fewer upgrades per week.
+
+There weren't any gemboxes available this week. I had a 11 year Clash of Clans anniversary trophy placed in my village though. I have so many of these game trophies (not only the 11 year anniversary one) that nothing but gemboxes are capable of appearing in my village.
+
+I eventually wrapped up and quit. - 2023, Sunday, August 13th
+
+### 2023, Sunday, August 20th
+
+I had a long length session again today.
+
+I was not attacked since I last played, so I could do some upgrades.
+
+I did only 4 upgrades this week, with 1 building upgrade, upgrading my wizard tower to level 8, and upgrading 3 walls to level 13. Just 283 to go...
+
+I was considering upgrading an archer tower to level 13 yet again, but felt that this wizard tower was more important for the time.
+
+I plan to upgrade the other geared up defense (archer tower) soon. I am able to do fewer upgrades per week.
+
+There was 1 gem box available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, August 20th
+
+### 2023, Sunday, August 27th
+
+I had a long length session again today.
+
+I was attacked once since I last played, which prevented me from doing the upgrade I wanted (Wizard tower level 9) and instead upgrading a mortar to level 9 for 3.5 million gold.
+
+I did only 3 upgrades this week, doing only building upgrades, upgrading a mortar to level 9, my barbarian king to level 32, a 2nd dark elixir drill to level 8, and upgrading 0 walls to level 13. Still 283 to go...
+
+I moved some buildings around, putting more splash damage defenses closer to my eastern walls, and moving some elixir collectors and gold mines a little further in. I also put my higher level dark elixir drills into the town hall citadel region.
+
+I was considering upgrading an archer tower to level 13 yet again, but felt that there were too many other upgrades that needed to be done, and since the Archer Tower upgrades are cheap compared to the mortar upgrade, I decided to hold it off.
+
+I plan to upgrade the other geared up defense (archer tower) eventually. I am able to do fewer upgrades per week.
+
+There was 1 gem box available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, August 27th
+
+### 2023, Sunday, September 3rd
+
+I had a long length session again today.
+
+I did not get attacked since I last played, but I still did a cheaper upgrade than planned, upgrading an archer tower to level 13.
+
+I did only 2 upgrades this week, doing only building upgrades, upgrading an archer tower to level 13, and upgrading my 3rd dark elixir drill to level 8, while upgrading 0 walls to level 13. Still 283 to go...
+
+I plan to upgrade the other geared up defense (archer tower) eventually. I am able to do fewer upgrades per week.
+
+There was 1 gem box available this week.
+
+I stayed around the game longer, procrastinating a bit, but having fun.
+
+I eventually wrapped up and quit. - 2023, Sunday, September 3rd
+
+### 2023, Sunday, September 10th
+
+I had a long length session again today.
+
+I did not get attacked since I last played, but I still did a cheap(ish) upgrading an archer tower to level 14. I am excited to see what a level 15 archer tower will look like.
+
+I did only 3 upgrades this week, doing more than just building upgrades this week, upgrading an archer tower to level 14, my grand warden to level 4, and also 1 wall to level 13. Still 282 to go...
+
+I plan to upgrade the other geared up defense (archer tower) eventually. I am able to do fewer upgrades per week.
+
+There weren't any gemboxes available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, September 10th
+
+### 2023, Sunday, September 17th
+
+I had a long length session again today.
+
+I did not get attacked since I last played.
+
+I did 3 upgrades this week, doing more than just building upgrades this week, upgrading an archer tower to level 15, my grand warden to level 5, and also 1 wall to level 13. Still 281 to go...
+
+I feel this game may be the most fun for me when the variety of available upgrades is larger, but less fun as less are available.
+
+I plan to upgrade the other geared up defense (archer tower) eventually. I am able to do fewer upgrades per week.
+
+There was 1 gembox available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, September 17th
+
+### 2023, Sunday, September 24th
+
+I had a long length session again today.
+
+I did not get attacked since I last played.
+
+I did 4 upgrades this week, doing more than just building upgrades this week, upgrading my geared up archer tower to level 14, and 3 of my walls to level 13. Still 278 to go...
+
+There was 1 gembox available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, September 24th
+
+### 2023, Sunday, October 1st
+
+I had a long length session again today.
+
+I did not get attacked since I last played.
+
+I did 5 upgrades this week, doing more than just building upgrades this week, upgrading my geared up archer tower to level 15, my archer queen to level 31, and 3 of my walls to level 13. Still 275 to go...
+
+I spent a lot of time browsing around and killing time.
+
+There weren't any gemboxes available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, October 1st
+
+### 2023, Sunday, October 8th
+
+I had a long length session again today.
+
+I did not get attacked since I last played.
+
+I did 4 upgrades this week, doing more than just building upgrades this week, upgrading an archer tower to level 14 in the Southern portion of my base (where the DEFCON system is located) 3 of my walls to level 13 around the Citadel. Still 272 to go...
+
+There was 1 gembox available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, October 8th
+
+### 2023, Sunday, October 15th
+
+I had a long length session again today.
+
+I did not get attacked since I last played. There was a Halloween update this week.
+
+I did 4 upgrades this week, doing more than just building upgrades this week, upgrading an archer tower to level 14 in the Western portion of my base (where the Archer tower isolated within walls is) along with 3 of my walls to level 13 around the Citadel. Still 269 to go...
+
+I estimate that it will take about 10 to 11 more weeks to upgrade the rest of my Archer towers to level 15, at a cost of 27.5 million gold. I likely will want to take a break from doing this consecutively.
+
+There was a UI overhaul today, it is a lot less helpful and clunky, and I miss the old UI.
+
+There was 1 gembox available this week.
+
+There was a new event that introduced sour elixir. I am hoping it doesn't make my village more prone to attack.
+
+I eventually wrapped up and quit. - 2023, Sunday, October 15th
+
+### 2023, Sunday, October 22nd
+
+I had a long length session again today.
+
+I got attacked since I last played, but didn't lose any resources. I feel it was just someone coming for sour elixir.
+
+I did 5 upgrades this week, doing more than just building upgrades this week, upgrading an archer tower to level 15 in the Western portion of my base (where the Archer tower isolated within walls is) along with 3 of my walls to level 13 around the Citadel. Still 266 to go...
+
+I also upgraded my Golem troop to level 7.
+
+I estimate that it will take about 9 to 10 more weeks to upgrade the rest of my Archer towers to level 15, at a cost of 24.0 million gold. I likely will want to take a break from doing this consecutively.
+
+I still miss the old UI.
+
+There weren't any gemboxes available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, October 22nd
+
+### 2023, Sunday, October 29th
+
+I had a long length session again today.
+
+I got attacked a few times since I last played, and lost a significant amount of resources. I was still able to continue somewhat normally.
+
+I did 4 upgrades this week, doing more than just building upgrades this week, upgrading an archer tower to level 14 in the Southern portion of my base (close to the Eagle Artillery) along with 3 of my walls to level 13 around the Citadel. Still 263 to go...
+
+I estimate that it will take about 8 to 9 more weeks to upgrade the rest of my Archer towers to level 15, at a cost of 21.5 million gold. I likely will want to take a break from doing this consecutively.
+
+I still miss the old UI. There should at least be an option to toggle the classic UI.
+
+There was 1 gembox available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, October 29th
+
+### 2023, Sunday, November 5th
+
+I had a long length session again today.
+
+I got attacked once since I last played, but didn't lose any resources. Upgrades were still difficult today.
+
+I did 4 upgrades this week, doing more than just building upgrades this week, upgrading an archer tower to level 14 in the Eastern portion of my base (close to the Army Camps) along with 3 of my walls to level 13 around the Citadel. Still 263 to go... (value last checked: 2023, November 8th)
+
+I estimate that it will take about 7 to 8 more weeks to upgrade the rest of my Archer towers to level 15, at a cost of 19.0 million gold. I likely will want to take a break from doing this consecutively.
+
+I still miss the old UI. There should at least be an option to toggle the classic UI.
+
+There was 1 gembox available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, November 5th
+
+### 2023, Sunday, November 12th
+
+I had a long length session again today.
+
+I did not get attacked since I last played.
+
+I did 3 upgrades this week, doing only building upgrades this week, upgrading an archer tower to level 14 in the Eastern portion of my base (close to the Army Camps) along with 2 of my walls to level 13 around the Citadel. Still 258 to go... (value last checked: 2023, November 12th)
+
+I estimate that it will take about 6 to 7 more weeks to upgrade the rest of my Archer towers to level 15, at a cost of 16.5 million gold. I likely will want to take a break from doing this consecutively.
+
+I still miss the old UI. There should at least be an option to toggle the classic UI.
+
+There weren't any gemboxes available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, November 12th
+
+### 2023, Sunday, November 19th
+
+I had a long length session again today.
+
+I did not get attacked since I last played.
+
+I did 5 upgrades this week, upgrading an archer tower to level 15 in the Eastern portion of my base (close to the Citadel region) my barbarian king to level 33, along with 3 of my walls to level 13 around the Citadel (the walls around the town hall, and several resource storages) Still 255 walls to go... (value last checked: 2023, November 12th)
+
+I estimate that it will take about 5 to 6 more weeks to upgrade the rest of my Archer towers to level 15, at a cost of 13.5 million gold. I likely will want to take a break from doing this consecutively.
+
+I still miss the old UI. There should at least be an option to toggle the classic UI.
+
+There was 1 gembox available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, November 19th
+
+### 2023, Sunday, November 26th
+
+I had a long length session again today.
+
+I did not get attacked since I last played.
+
+I did 4 upgrades this week, upgrading an archer tower to level 15 in the Southern portion of my base (close to the Spell Factory) along with 3 of my walls to level 13 around the Citadel (the walls around the town hall, and several resource storages) I only have 3 more walls to upgrade before the Citadel region has all level 13 walls. Still 252 walls to go... (value last checked: 2023, November 12th)
+
+I estimate that it will take about 4 to 5 more weeks to upgrade the rest of my Archer towers to level 15, at a cost of 10.0 million gold.
+
+There was a server connection loss early on, and afterwards, Winter music was playing. Before this, whenever I went to visit the information page for any building, the music restarted. This problem went away after the restart.
+
+I still miss the old UI. There should at least be an option to toggle the classic UI.
+
+There weren't any gemboxes available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, November 26th
+
+### 2023, Sunday, December 3rd
+
+<!-- 2023.12.03
+
+COC session
+
+Very verty early in the morning
+Building price -50% for this week, and some hours on Sunday next week
+Disappointed
+Nostalgic morning session
+Gem mine upgrade
+Ottos outpost upgrade
+Decent battle record
+Many walls upgraded
+!-->
+
+I had a long length session again today. I had a very early morning session that felt highly nostalgic.
+
+I was attacked 3 times since I last played, all 3 attacks were unsuccessful.
+
+There was a building price change today, where prices were cut in half for this week, and some hours on Sunday of next week. I am disappointed that it isn't a permanent price change.
+
+I did 9 upgrades this week, upgrading an archer tower to level 14 in the Northern portion of my base (close to the Multi-Mortar) an X-BOW to level 3 for 1.2 million gold, along with 7 of my walls to level 13 around the Citadel (the walls around the town hall, and several resource storages) and in the Southern portion of my base (near the spell factory) Still 245 walls to go... (value last checked: 2023, November 12th)
+
+I estimate that it will take about 3 to 4 more weeks to upgrade the rest of my Archer towers to level 15, at a cost of 7.0 million gold.
+
+I still miss the old UI. There should at least be an option to toggle the classic UI.
+
+There was 1 gembox available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, December 3rd
+
+### 2023, Sunday, December 10th
+
+I had a long length session again today.
+
+I did not get attacked since I last played.
+
+Today was the last day of a building price change, where prices were cut in half. I took advantage of this and did further updates.
+
+I did 8 upgrades this week, upgrading an archer tower to level 15 in the Northern portion of my base (close to the Multi-Mortar) for 1.75 million gold, a cannon to level 14 for 1.05 million gold, along with 6 of my walls to level 13 in the Southern portion of my base (near the spell factory) Still 237 walls to go... (value last checked: 2023, November 12th)
+
+I estimate that it will take about 2 to 3 more weeks to upgrade the rest of my Archer towers to level 15, at a cost of 3.5 million gold.
+
+I still miss the old UI. There should at least be an option to toggle the classic UI.
+
+There was 1 gembox available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, December 10th
+
+### 2023, Sunday, December 17th
+
+I had a long length session again today.
+
+I did not get attacked since I last played.
+
+I did 5 upgrades this week, upgrading an archer tower to level 15 in the Southern portion of my base (close to the Eagle Artillery) for 2.5 million gold, my archer queen to level 32 for 49,000 dark elixir, along with 3 of my walls to level 13 in the Southern portion of my base (near the spell factory) Still 234 walls to go... (value last checked: 2023, November 12th)
+
+I estimate that it will take about 1 more week to upgrade the rest of my Archer towers to level 15, at a cost of 2.5 million gold.
+
+I still miss the old UI. There should at least be an option to toggle the classic UI.
+
+There weren't any gemboxes available this week.
+
+I eventually wrapped up and quit. - 2023, Sunday, December 17th
+
+### 2023, Sunday, December 24th
+
+I had a long length session again today.
+
+I got attacked once since I last played, and lost a lot of resources, but was still able to do upgrades this week.
+
+I did 3 upgrades this week, upgrading an archer tower to level 15 in the Northern portion of my base (close to the Dark Elixir storage building within the Citadel region) for 2.5 million gold, my grand warden to level 6 for 1,500,000 elixir, along with just 1 of my walls to level 13 in the Southern portion of my base (near the spell factory) Still 233 walls to go... (value last checked: 2023, November 12th)
+
+I initially forgot I was supposed to upgrade walls, which is why the Grand Warden was upgraded. If I had remembered, I would have upgraded 3 walls today.
+
+All of my archer towers are now level 15. My next goal is to get all of my cannons to level 15.
+
+I still miss the old UI. There should at least be an option to toggle the classic UI.
+
+There was 1 gembox available this week.
+
+There was an event known as Cookie Rumble this week (which probably made the player attack me) it is similar to the sour elixir event. I am not going to participate in it other than collecting from the bakery.
+
+I came incredibly close to leveling up today, but stayed in level 141. Next week, I will be in level 142.
+
+I was able to see the Clan Games menu today, something I normally can't access, although I still can't do anything here.
+
+I eventually wrapped up and quit. - 2023, Sunday, December 24th
+
+### 2023, Sunday, December 31st
+
+I had a long length session again today.
+
+I got attacked once since I last played, and lost some resources, but was still able to do upgrade normally this week.
+
+I did 3 upgrades this week, upgrading a cannon to level 14 in the Southern portion of my base (close to the cannon enclosed by itself with walls)  for 2.0 million gold, my grand warden to level 7 for 1,600,000 elixir, along with just 1 of my walls to level 13 in the Southern portion of my base (near the spell factory) Still 232 walls to go... (value last checked: 2023, November 12th)
+
+I decided to focus on another Grand Warden upgrade, instead of upgrading walls, which is why only 1 wall was upgraded.
+
+I still miss the old UI. There should at least be an option to toggle the classic UI.
+
+There weren't any gemboxes available this week.
+
+I leveled up to level 142 since I last played.
+
+I began to build a blacksmith building today, I am unsure so far what it will do.
+
+I eventually wrapped up and quit. - 2023, Sunday, December 31st
+
+### 2024, Sunday, January 7th
+
+- I had a normal length session again today.
+- I did not get attacked since I last played.
+- I did 5 upgrades this week, upgrading a multi-mortar to level 10 in the Westertn portion of my base (next to the Citadel region) for 3.5 million gold, my archer queen to level 33 for 31,000 dark elixir, along with 3 of my walls to level 13 in the Southern portion of my base (near the spell factory) Still 229 walls to go... (value last checked: 2023, November 12th)
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week.
+- I eventually wrapped up and quit. - 2024, Sunday, January 7th
+
+### 2024, Sunday, January 14th
+
+- I had a long length session again today.
+- I did not get attacked since I last played.
+- I did 4 upgrades this week, upgrading a cannon to level 14 in the Northern portion of my base (near the Christmas tree within the walls) for 2.0 million gold, along with 3 of my walls to level 13 in the Southern portion of my base (around the isolate cannon) Still 229 walls to go... (value last checked: 2023, November 12th) the walls were adjusted multiple times during the session to envelop the isolate max level cannon with max level walls, while making the walls in the far corner less secure, which will be fixed within 2-3 weeks.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week.
+- I eventually wrapped up and quit. - 2024, Sunday, January 14th
+
+### 2024, Sunday, January 21st
+
+- I had a long length session again today.
+- I did not get attacked since I last played.
+- I did 4 upgrades this week, upgrading a wizard tower to level 9 in the Western portion of my base (near the Eagle Artillery) for 2.8 million gold, along with 3 of my walls to level 13 in the Southern portion of my base (near the isolate cannon) Still 226 walls to go... (value last checked: 2023, November 12th)
+- I still miss the old UI. There should at least be an option to toggle the classic UI. I went through some of the settings today, it had a unique overhaul since I last checked
+- There was 1 gembox available this week.
+- I eventually wrapped up and quit. - 2024, Sunday, January 21st
+
+### 2024, Sunday, January 28th
+
+- I had a long length session again today.
+- I did not get attacked since I last played.
+- I did 5 upgrades this week, upgrading a second mortar to level 10 in the Northern portion of my base (near the northern border wall) for 3.5 million gold, along with my Barbarian King to level 34 for 47,000 dark elixir, and 3 of my walls to level 13 in the Southern portion of my base (near the isolate cannon) Still 223 walls to go... (value last checked: 2023, November 12th)
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week.
+- I eventually wrapped up and quit. - 2024, Sunday, January 28th
+
+### 2024, Sunday, February 4th
+
+- I had a long length session again today.
+- I did not get attacked since I last played.
+- I did 5 upgrades this week, upgrading my third mortar to level 9 in the Eastern portion of my base (near the geared up archer tower) for 2.5 million gold, along with 3 of my walls to level 13 in the Southern portion of my base (near the Eagle Artillery) Still 220 walls to go... (value last checked: 2023, November 12th)
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, February 4th
+
+### 2024, Sunday, February 11th
+
+- I had a long length session again today.
+- I did not get attacked since I last played.
+- I did 4 upgrades this week, upgrading my third mortar to level 10 in the Eastern portion of my base (near the geared up archer tower) for 3.5 million gold, along with 3 of my walls to level 13 in the Southern portion of my base (near the Eagle Artillery) Still 217 walls to go... (value last checked: 2023, November 12th)
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was a Lunar New Year event present this week.
+- I spent 90 dragon festival medals in order to get the resources to do the mortar upgrade, and the 3rd wall upgrade.
+- There was 1 gembox available this week
+- I visited the base of my childhood friend Shamus today, he seems to still play the game. For some reason, the game wasn't letting me view his builder base
+- I eventually wrapped up and quit. - 2024, Sunday, February 11th
+
+### 2024, Sunday, February 18th
+
+- I had a long length session again today.
+- I got attacked twice since I last played, both attacks were unsuccessful.
+- I did 4 upgrades this week, upgrading my fourth mortar to level 9 in the Western portion of my base (near the Eagle Artillery) for 2.5 million gold, along with 3 of my walls to level 13 in the Western portion of my base (surrounding an isolate archer tower) Still 214 walls to go... (value last checked: 2023, November 12th) several walls were moved around, and some areas lost fortification for now
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was a Lunar New Year event present this week.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, February 18th
+
+### 2024, Sunday, February 25th
+
+- I had a very long length session today.
+- I did not get attacked since I last played
+- I did 5 upgrades this week, upgrading my fourth mortar to level 10 in the Western portion of my base (near the Eagle Artillery) for 3.5 million gold, along with 3 of my walls to level 13 in the Western portion of my base (surrounding an isolate archer tower) Still 211 walls to go... (value last checked: 2023, November 12th) I also upgraded my archer queen to level 34 for 53,000 dark elixir.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, February 25th
+
+### 2024, Sunday, March 3rd
+
+- I had a very long length session today.
+- I did not get attacked since I last played
+- I did 4 upgrades this week, upgrading a cannon to level 14 in the Northern portion of my base (near the Dark Barracks) for 2.0 million gold, along with 3 of my walls to level 13 in the Southern portion of my base (covering the very tip of the left side of my village) Still 208 walls to go... (value last checked: 2023, November 12th) I did not do any other upgrades this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, March 3rd
+
+### 2024, Sunday, March 10th
+
+- I had a very long length session today.
+- I did not get attacked since I last played
+- I did 4 upgrades this week, upgrading a cannon to level 15 in the Southern portion of my base (near the bottom left corner of my village) for 2.5 million gold, along with 3 of my walls to level 13 in the Southern portion of my base (covering the very tip of the left side of my village) Still 205 walls to go... (value last checked: 2023, November 12th) I did not do any other upgrades this week. I could have done a different upgrade this week, but decided to keep consistent with cannon upgrades
+- I previewed some troops today. The root rider is absolutely terrifying, given how it can destroy max level walls in less than a second, and has lots of hitpoints. I would say it is more effective than the wall breaker/bomber. There are so many easy ways to destroy or jump over walls, it makes you wonder why the majority of upgrades in the game are done to wall segments.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, March 10th
+
+### 2024, Sunday, March 17th
+
+- I had a very long length session today.
+- I did not get attacked since I last played
+- I did 5 upgrades this week, upgrading a cannon to level 14 in the Southern portion of my base (near the laboratory) for 2.0 million gold, along with 3 of my walls to level 13 in the Southern portion of my base (covering the very tip of the left side of my village) Still 200 walls to go... (value last checked: 2024, Sunday, March 17th) I struggled to decide on what to upgrade initially. I later spent time waiting for enough dark elixir to be drilled, so that I could upgrade my Archer Queen to level 35 for 55,000 dark elixir. During this, I noted that dark elixir is an extremely valuable resource: 4 dark elixir is equivalent to 1 gem (for speeding upgrades/buying upgrades) if you managed to take 4,000 dark elixir from someone in an attack, that is equivalent to taking 1,000 gems worth of resources. I did not do any other upgrades this week. I could have done a different upgrade this week, but decided to keep consistent with cannon upgrades
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. - 2024, Sunday, March 17th
+
+### 2024, Sunday, March 24th
+
+- I had a long length session today.
+- I did not get attacked since I last played
+- I did 4 upgrades this week, upgrading a wizard tower to level 10 in the Northern portion of my base (near the dark barracks) for 4.0 million gold, along with 2 of my walls to level 13 in the Southern portion of my base (covering the very tip of the left side of my village) and 1 wall on the Eastern portion of my base (covering the very tip on the top right side of my base) Still 197 walls to go... (value last checked: 2024, Sunday, March 17th)
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- I was wrong about dark elixir last week. Looking into it again today, the amount seems to be very random, as some upgrades for more dark elixir cost less gems, but most upgrades for less dark elixir cost more gems.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, March 24th
+
+### 2024, Sunday, March 31st
+
+<!-- Notes 2024.03.31
+CoC
+Connectivity issues
+Mr. Krab, disappointed to not see an all-goblin attack (it would have failed, my base simply does too much splash damage, but sending in a single archer queen is failing as well)
+Boost in the builder base, so that I could save up and upgrade my Battle Machine to level 33
+Close to leveling up
+Cannon level 15
+3 walls in top edge of base
+Really wanted to upgrade air defense
+!-->
+
+- I had a long length session today.
+- I got attacked once since I last played, the attack was unsuccessful
+- I did 4 upgrades this week, upgrading a cannon to level 15 in the Eastern portion of my base (near the tornado trap) for 2.5 million gold, along with 3 of my walls to level 13 in the Northern portion of my base (covering the very tip of the right side of my village) Still 194 walls to go... (value last checked: 2024, Sunday, March 17th)
+- I really wanted to upgrade an air defense structure today, but decided to do a different upgrade instead
+- I am really close to leveling up today
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There were some connectivity issues this week. After the game disconnected another time near the end, the UI changed. Everything was smaller.
+- The player that attacked me had the username `Mr. Krab` I was disappointed to not see an all-goblin attack (it would have failed, my base simply does too much splash damage, but sending in a single archer queen is failing as well)
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, March 31st
+
+### 2024, Sunday, April 7th
+
+- I had a long length session today.
+- I did not get attacked since I last played.
+- I did 3 upgrades this week, upgrading an air defense building in the Northern portion of my base (near the dark elixir storage) for 3.4 million gold, my blacksmith to level 2 for 1.7 million elixir, along with just 1 of my walls to level 13 in the Northern portion of my base (covering the very tip of the right side of my village) Still 193 walls to go... (value last checked: 2024, Sunday, March 17th)
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. - 2024, Sunday, April 7th
+
+### 2024, Sunday, April 14th
+
+- I had a long length session today.
+- I did not get attacked since I last played.
+- I did 3 upgrades this week, upgrading a cannon to level 15 in the Northern portion of my base (near the archer queen) for 2.5 million gold, along with 2 of my walls to level 13 in the Northern portion of my base (covering the very tip of the right side of my village) Still 191 walls to go... (value last checked: 2024, Sunday, March 17th)
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, April 14th
+
+<!--
+Notes CoC 2024.04.21
+
+Session started very late (after 7:00 pm)
+Cannon level 15 upgrade, 1 left
+3 walls upgraded
+Battle machine level 34, might not be combat-ready by the next session
+Hidden bomb level 10
+Disappointing upgrade, but it needs to be done
+Barely staying in Steel League I
+!-->
+
+- I had a long length session today.
+- I did not get attacked since I last played.
+- I did 3 upgrades this week, upgrading a cannon to level 15 in the Western portion of my base (near the lone dark elixir drill) for 2.5 million gold, along with 3 of my walls to level 13 in the Western portion of my base (covering the East-West wall area) Still 188 walls to go... (value last checked: 2024, Sunday, March 17th) A lot of walls were moved. There is only 1 cannon left to upgrade to level 15.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, April 21st
+
+### 2024, Sunday, April 28th
+
+- I had a long length session today.
+- I got attacked 6 times since I last played. Most attacks were successful, and I lost a lot of resources. I need to focus on air defense.
+- I did 3 upgrades this week, upgrading a cannon to level 15 in the Western portion of my base (near the multi-mortar) for 2.5 million gold, along with 1 of my walls to level 13 in the Southern portion of my base (covering the Southern wall tip area) Still 187 walls to go... (value last checked: 2024, Sunday, April 28th) I also upgraded my grand warden to level 3 for 1.8 million elixir
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. - 2024, Sunday, April 28th
+
+### 2024, Sunday, May 5th
+
+- I had a long length session today.
+- I did not get attacked since I last played.
+- I did 5 upgrades this week, upgrading 3 air bombs in the Northern and Eastern portions of my base (1.1 million gold each, 3.3 million gold total) along with 2 of my walls to level 13 in the Southern portion of my base (covering the Southern wall tip area) Still 185 walls to go... (value last checked: 2024, Sunday, April 28th) I did not do any other upgrades today
+- The game frequently disconnected today due to an issue with SUPERCELLs server. It was very frustrating, as this game used to work on 3G mobile data and handle slightly better, not working on near gigabit Wi-Fi is not acceptable.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, May 5th
+
+### 2024, Sunday, May 12th
+
+- I had a long length session today.
+- I did not get attacked since I last played.
+- I did 3 upgrades this week, upgrading a bomb tower in the Northern portion of my base to level 5 for 2.8 million gold, my Archer Queen to level 37 for 59k dark elixir, and my spell factory to level 6 for 3.5 million elixir. I did not upgrade along any my walls to level 13 today of my base. Still 185 walls to go... (value last checked: 2024, Sunday, April 28th) I did not do any other upgrades today
+- The game frequently disconnected early on due to issues with connectivity. Yesterday, I dreaded playing Clash of Clans for the first time due to this. The game became unplayable, so I switched to a Wi-Fi hotspot, which fixed the issue. I still believe there is some responsibility on SUPERCELLs side.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, May 12th
+
+### 2024, Sunday, May 19th
+
+- I had a long length session today.
+- I did not get attacked since I last played.
+- I did 3 upgrades this week, upgrading a hidden tesla in the Northern portion of my base to level 9 for 2.5 million gold, along with 3 walls in the very Southern tip of my base to level 13 for 1 million elixir each, 2 million elixir total. Still 183 walls to go... (value last checked: 2024, Sunday, April 28th) I did not do any other upgrades today
+- The game functioned fine off a Wi-Fi hotspot this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. - 2024, Sunday, May 19th
+
+### 2024, Sunday, May 26th
+
+- I had a long length session today.
+- I did not get attacked since I last played.
+- I did 4 upgrades this week, upgrading an air defense in the Eastern portion of my base to level 9 for 3.4 million gold, along with 3 walls in the very Southern tip of my base to level 13 for 1 million elixir each, 3 million elixir total. The walls were later moved to surround my Clan Castle. Still 180 walls to go... (value last checked: 2024, Sunday, April 28th) I did not do any other upgrades today
+- The game functioned fine off a Wi-Fi hotspot this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, May 26th
+
+### 2024, Sunday, June 2nd
+
+- I had a long length session today.
+- I got attacked 8 times since I last played, most attacks were successful, so I lost a lot of resources. Surprisingly, I was still able to do upgrades this week.
+- I did 3 upgrades this week, upgrading a X-BOW in the Southern portion of my base to level 9 for 2.5 million gold, along with 2 walls in the Southern portion of my base next to the Clan Castle to level 13 for 1 million elixir each, 2 million elixir total. Still 178 walls to go... (value last checked: 2024, Sunday, June 2nd) I did not do any other upgrades today. I wanted to upgrade a hidden tesla to level 9 today, but felt the X-BOW upgrade had been held off for too long, and needed to be done first.
+- The game functioned fine off a Wi-Fi hotspot again this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, June 2nd
+
+### 2024, Sunday, June 9th
+
+- I had a long length session today.
+- I was not attacked at all since I last played
+- I made one of my oldest decorations (a clashmas tree) permanently movable today with a shovel. Unfortunately, it still has the option to remove the object using gold, despite the fact that it is over 6 years old, and won't come back if I remove it
+- I did 5 upgrades this week, upgrading a bomb tower in the Eastern of my base to level 5 for 2.8 million gold, along with my barbarian king to level 35, and also 3 walls in the Southern portion of my base next to the Clan Castle to level 13 for 1 million elixir each, 3 million elixir total. Still 175 walls to go... (value last checked: 2024, Sunday, June 2nd) I did not do any other upgrades today. I wanted to upgrade a hidden tesla to level 9 today, but felt the bomb tower upgrade should come first.
+- The game functioned fine off a Wi-Fi hotspot again this week. I forgot to enable it, and had to minimize the game, enable it, and come back in the beginning
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, June 9th
+
+### 2024, Sunday, June 16th
+
+- I had a long length session today.
+- I was not attacked at all since I last played
+- I did 4 upgrades this week, upgrading a hidden tesla in the Eastern of my base to level 9 for 2.5 million gold, along with 3 walls in the Southern portion of my base next to the Clan Castle to level 13 for 1 million elixir each, 3 million elixir total. Still 172 walls to go... (value last checked: 2024, Sunday, June 2nd) I did not do any other upgrades today.
+- The game functioned fine off a Wi-Fi hotspot again this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, June 16th
+
+### 2024, Sunday, June 23rd
+
+- I had a long length session today.
+- I was attacked once since I last played. The attack was successful, but I didn't lose very many resources.
+- I did 3 upgrades this week, upgrading a hidden tesla in the Eastern of my base to level 9 for 2.5 million gold, along with 2 walls in the Southern portion of my base next to the Clan Castle to level 13 for 1 million elixir each, 2 million elixir total. Still 170 walls to go... (value last checked: 2024, Sunday, June 2nd) I did not do any other upgrades today.
+- The game had an update today. It added the builders apprentice, which costs 500 gems. I decided I am not going to buy it until I save up at least 10,500 gems, if at all.
+- The game functioned fine off a Wi-Fi hotspot again this week. I forgot about it initially, and had to reconnect when a connection issue surfaced.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. - 2024, Sunday, June 23rd
+
+### 2024, Sunday, June 30th
+
+- I had a long length session today.
+- I was not attacked since I last played.
+- I did 5 upgrades this week, upgrading a hidden tesla in the Eastern of my base to level 9 for 2.5 million gold, along with 3 walls in the Southern portion of my base next to the Clan Castle to level 13 for 1 million elixir each, 3 million elixir total. Still 167 walls to go... (value last checked: 2024, Sunday, June 2nd) I also upgraded my barbarian king to level 36 for 50,000 dark elixir. I did not do any other upgrades today. I plan to do 10 more wall upgrades, before doing some other upgrades that cost Elixir.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it.
+- The game functioned fine off a Wi-Fi hotspot again this week..
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, June 30th
+
+### 2024, Sunday, July 7th
+
+- I had a long length session today.
+- I was not attacked since I last played.
+- I did 6 upgrades this week, upgrading 3 hidden bombs in the Western and Nothern portions of my base to level 8 for 1.1 million gold each, 3.3 million gold total. I also upgraded 3 walls in the Southern portion of my base next to the Clan Castle to level 13 for 1 million elixir each, 3 million elixir total. Still 164 walls to go... (value last checked: 2024, Sunday, June 2nd) I did not do any other upgrades this week.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it.
+- The game functioned fine off a Wi-Fi hotspot again this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, July 7th
+
+### 2024, Sunday, July 14th
+
+- I had a long length session today.
+- I was not attacked since I last played.
+- I did 5 upgrades this week, upgrading 2 air bombs in the Center and Southern portions of my base to level 5 for 1.1 million gold each 2.2 million gold total. I also upgraded 3 walls in the Southern portion of my base next to the Clan Castle to level 13 for 1 million elixir each, 3 million elixir total. Still 161 walls to go... (value last checked: 2024, Sunday, June 2nd) I did not do any other upgrades this week.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it.
+- The game functioned fine off a Wi-Fi hotspot again this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I stuck around for a bit in the end, collecting resources
+- I eventually wrapped up and quit. - 2024, Sunday, July 14th
+
+### 2024, Sunday, July 21st
+
+- I had a long length session today.
+- I was not attacked since I last played.
+- I did 5 upgrades this week, upgrading my last 3 bombs (located in the Southern corner, and Western corner of my base) to level 5 for 1.1 million gold each 3.3 million gold total. The third upgrade required me to play longer, so that I could collect more gold. I also upgraded 2 walls in the Southern portion of my base next to the Clan Castle to level 13 for 1 million elixir each, 2 million elixir total. Still 159 walls to go... (value last checked: 2024, Sunday, June 2nd) I did not do any other upgrades this week. I plan to upgrade 2 more walls, before doing other elixir upgrades.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I stuck around for a bit in the end, collecting resources
+- I eventually wrapped up and quit. - 2024, Sunday, July 21st
+
+### 2024, Sunday, July 28th
+
+- I had a long length session today.
+- I was not attacked since I last played.
+- I did 5 upgrades this week, upgrading a giant bomb in the Eastern corner of my base to level 5 for 2 million gold, upgrading my blacksmith to level 3 for 2.3 million elixir, upgrading my Archer Queen to level 38 for 61,000 dark elixir, and upgrading 1 wall in the Southern portion of my base next to the Clan Castle to level 13 for 1 million elixir. Still 158 walls to go... (value last checked: 2024, Sunday, June 2nd) I am doing a pause on wall upgrades now, in order to do elixir upgrades. On days like today, I can do both a wall upgrade an an elixir building upgrade.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I stuck around for a while in the end, collecting resources
+- I eventually wrapped up and quit. - 2024, Sunday, July 28th
+
+### 2024, Sunday, August 4th
+
+- I had a long length session today.
+- I was attacked once since I last played. The attack was unsuccessful.
+- I did 2 upgrades this week, upgrading my grand warden to level 9 for 2 million elixir, and later, an air defense in the top Western corner of my base (next to the town hall citadel region) to level 9 for 4.4 million gold. I did not upgrade any walls today, there are still 158 walls to go... (value last checked: 2024, Sunday, June 2nd)
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, August 4th
+
+### 2024, Sunday, August 11th
+
+- I had a long length session today.
+- I was not attacked since I last played.
+- I did 2 upgrades this week, upgrading my blacksmith to level 4 for 3 million elixir, along with a giant bomb in the top Western corner of my base (close to the dark barracks) to level 5 for 2 million gold. I did not upgrade any walls today, there are still 158 walls to go... (value last checked: 2024, Sunday, June 2nd)
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. - 2024, Sunday, August 11th
+
+### 2024, Sunday, August 18th
+
+- I had a long length session today.
+- I was not attacked since I last played.
+- I did 2 upgrades this week, upgrading my grand warden to level 10 for 2.3 million elixir, along with my fourth and final air defense in the Southern corner of my base to level 9 for 4.4 million gold. I did not upgrade any walls today, there are still 158 walls to go... (value last checked: 2024, Sunday, June 2nd)
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, August 18th
+
+### 2024, Sunday, August 25th
+
+- I had a long length session today.
+- I was not attacked since I last played.
+- I did 3 upgrades this week, upgrading my grand warden to level 11 for 2.7 million elixir, my barbarian king to level 37 for 52,000 dark elixir, along with a giant bomb to level 5 for 2 million gold. I did not upgrade any walls today, there are still 158 walls to go... (value last checked: 2024, Sunday, June 2nd) wall updates are paused for now.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, August 25th
+
+### 2024, Sunday, September 1st
+
+- I had a long length session today.
+- I was not attacked since I last played.
+- I did 2 upgrades this week, upgrading my grand warden to level 12 for 3 million elixir, and an inferno tower (near the citadel region) to level 4 for 3.4 million gold. I considered saving up elixir to upgrade something else, but decided I needed to get the cheaper upgrades done first. I did not upgrade any walls today, there are still 158 walls to go... (value last checked: 2024, Sunday, June 2nd) wall updates are paused for now.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. - 2024, Sunday, September 1st
+
+### 2024, Sunday, September 8th
+
+- I had a long length session today.
+- I was not attacked since I last played.
+- I did 1 upgrade this week, upgrading a giant bomb to level 5 for 2 million gold. I couldn't afford anything else, and didn't feel like upgrading walls or troops. I wanted to upgrade my Grand Warden to level 13 for 3.4 million elixir, but I feel saving up elixir to upgrade something else (like an army camp) would be the better move. I did not upgrade any walls today, there are still 158 walls to go... (value last checked: 2024, Sunday, June 2nd) wall updates are paused for now.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- The game functioned fine off a Wi-Fi hotspot as usual this week, although in the beginning, it was acting like it was going to disconnect (it never did)
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, September 8th
+
+### 2024, Sunday, September 15th
+
+- I had a normal length session today.
+- I was not attacked since I last played.
+- I did 3 upgrades this week, upgrading my second inferno tower to level 4 for 3.4 million gold, my Barbarian King to level 38 for 53,000 dark elixir, and an army camp to level 9 for 4.2 million elixir. I did not upgrade any walls today, but I was tempted. There are still 158 walls to go... (value last checked: 2024, Sunday, June 2nd) wall updates are paused for now.
+- The game did require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- The game functioned fine off a Wi-Fi hotspot as usual this week, although in the beginning, it was acting like it was going to disconnect, and unfortunately, it did once, and almost did a second time. It appears this issue has come back due to the update.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. - 2024, Sunday, September 15th
+
+### 2024, Sunday, September 22nd
+
+- I had a normal length session today.
+- I was not attacked since I last played.
+- I did 2 upgrades this week, upgrading a fifth giant bomb to level 5 for 2 million gold, and an army camp to level 9 for 4.2 million elixir. Level 10 army camps seem like a downgrade in appearance. I did not upgrade any walls today. There are still 158 walls to go... (value last checked: 2024, Sunday, June 2nd) wall updates are paused for now.
+- The game did not require an update today, but one was available. After brief instability, I decided to get the update, and the issue was mostly resolved. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- The game functioned fine off a Wi-Fi hotspot as usual this week, although in the beginning, it was acting like it was going to disconnect, and unfortunately, it did once. After updating, it did this a few more times, but never disconnected again.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, September 22nd
+
+### 2024, Sunday, September 29th
+
+- I had a normal length session today.
+- I was not attacked since I last played.
+- I did 1 upgrade this week, upgrading an air sweeper to max level 7 for 3.4 million gold. I am saving up elixir and dark elixir for other upgrades, so this was the only upgrade I could do here today. I did not upgrade any walls today. There are still 158 walls to go... (value last checked: 2024, Sunday, June 2nd) wall updates are paused for now.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, September 29th
+
+### 2024, Sunday, October 6th
+
+- I had a normal length session today.
+- I was not attacked since I last played.
+- I did 2 upgrades this week, upgrading my third army camp to level 9 for 4.2 million elixir, and later on, upgrading a tornado trap to level 2 for 2.8 million gold. In a rare instance today, I used a resource potion. If I had known I would have been using it today, I would have used it first thing. I did not upgrade any walls today. There are still 158 walls to go... (value last checked: 2024, Sunday, June 2nd) wall updates are paused for now.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. - 2024, Sunday, October 6th
+
+### 2024, Sunday, October 13th
+
+- I had a normal length session today.
+- I was not attacked since I last played.
+- I did 2 upgrades this week, upgrading my fourth and final army camp to level 9 for 4.2 million elixir, along with my barbarian king to level 39 for 55,000 dark elixir. There are only 14 gold upgrades to go. I did not upgrade any walls today. There are still 158 walls to go... (value last checked: 2024, Sunday, June 2nd) wall updates are paused for now.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I decided to sign into SUPERCELL ID today, and really liked the process.
+- I eventually wrapped up and quit. - 2024, Sunday, October 13th
+
+### 2024, Sunday, October 20th
+
+- I had a normal length session today.
+- I was not attacked since I last played.
+- I did 2 upgrades this week, upgrading my second wizard tower to level 10 for 4 million gold, along with my wallbreaker troop to level 6 for 2.5 million elixir. I did not upgrade any walls today. There are still 158 walls to go... (value last checked: 2024, Sunday, June 2nd) wall updates are paused for now.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, October 20th
+
+### 2024, Sunday, October 27th
+
+- I had a normal length session today.
+- I was not attacked since I last played.
+- I did 2 upgrades this week, upgrading my third wizard tower to level 10 for 4 million gold, along with my giant troop to level 6 for 2.0 million elixir. I did not upgrade any walls today. There are still 158 walls to go... (value last checked: 2024, Sunday, June 2nd) wall updates are paused for now.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- The game functioned fine off a Wi-Fi hotspot as usual this week. I forgot in the beginning, and had to reconnect. The game functioned fine after that.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. - 2024, Sunday, October 27th
+
+### 2024, Sunday, November 3rd
+
+- I had a normal length session today.
+- I was not attacked since I last played.
+- I only did 1 upgrade this week, upgrading my grand warden to level 13 for 3.4 million elixir. I am saving up gold for another upgrade. I did not upgrade any walls today. There are still 158 walls to go... (value last checked: 2024, Sunday, June 2nd) wall updates are paused for now.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I reached and surpassed a total of 10,000 gems today.
+- I eventually wrapped up and quit. - 2024, Sunday, November 3rd
+
+### 2024, Sunday, November 10th
+
+- I had a normal length session today.
+- I was not attacked since I last played.
+- There was an event today that increased the production of gold mines, elixir collectors, and dark elixir drills by 3x and also cut prices in half. There were almost too many upgrades available today. If I upgraded something besides the eagle artillery, I would have had over a million gold left over. I went back to upgrading walls today, doing 20 upgrades in total, upgrading 14 walls to level 11 for 500,000 elixir each, 7,000,000 elixir total. I also upgraded my Eagle Artillery to level 2 for 4 million gold, my barbarian king to level 40 for 28,000 dark elixir, my archer queen to level 39 for 31,500 dark elixir, my second air sweeper to max level 7 for 1.7 million gold, and 2 of my wizard towers to level 10 for 2 million gold each, 4 million gold total. There are still 144 walls to go... (value last checked: 2024, Sunday, November 10th) this event made gameplay more fun today.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, November 10th
+
+### 2024, Sunday, November 17th
+
+- I had a normal length session today. I started gameplay in the late afternoon (close to 5:00 pm, when evening time starts) today
+- I was not attacked since I last played.
+- There was an event that started last week that increases the production of gold mines, elixir collectors, and dark elixir drills by 3x, and cuts prices in half. Next week is the last week of the event. I am close to finishing all gold upgrades for town hall 11, with 5 gold upgrades to go. I plan on doing extensive elixir upgrades next, while spending gold on wall upgrades. This week, I upgraded my archer queen to level 40 for 32,500 dark elixir, 2 of my inferno towers to level 5 for 2.1 million gold each, 4.2 million gold total, 1 bomb tower to level 6 for 2 million gold, my barracks to level 13 for 3,250,000 elixir, and my dark barracks to level 8 for 3,750,000 elixir. I did not upgrade any walls today. There are still 144 walls to go... (value last checked: 2024, Sunday, November 10th) this event made gameplay more fun again today.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. - 2024, Sunday, November 17th
+
+### 2024, Sunday, November 24th
+
+- I had a long length session today. I started gameplay in the late morning today.
+- I was not attacked since I last played.
+- There was an event that started 2 weeks ago that increases the production of gold mines, elixir collectors, and dark elixir drills by 3x, and cuts prices in half. Today was the last day of the event. I am close to finishing all gold upgrades for town hall 11, with 1 gold upgrade to go. I plan on doing extensive elixir upgrades next, while spending gold on wall upgrades. This week, I upgraded my archer queen to level 41 for 34,000 dark elixir, 3 of my X-BOWS to level 5 for 1,950,000 million gold each, 5,850,000 gold total, 1 bomb tower to level 6 for 2 million gold, and my grand warden to level 14 for 1,850,000 elixir. I also upgraded my electro dragon to level 2 for 1.9 million elixir. I did not upgrade any walls today. There are still 144 walls to go... (value last checked: 2024, Sunday, November 10th) I spent a lot of extra time (about 30 minutes) saving up to upgrade the third X-BOW to level 5.
+- The game did not require an update today. I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, November 24th
+
+### 2024, Sunday, December 1st
+
+- I had a long length session today. I started gameplay in the late morning today.
+- I was not attacked since I last played.
+- The game functioned without a Wi-Fi hot spot for the first half of my session, but required a hot spot for the second half. 
+- The game had a massive update, adding town hall 17, significantly changing the hero system, unlocking 2 new buildings (at town hall 11) along with upgrade prices going back to normal.
+- This week, I did not do any building upgrades, but I constructed 2 new buildings: a helper hut, and a hero hall. I also upgraded my minion prince to level 21 for 17,000 dark elixir (it was unlocked at level 20 upon updating, but I can't find it in my base) I also upgraded my electro dragon to level 2 for 1.9 million elixir. I did not upgrade any walls today. There are still 144 walls to go... (value last checked: 2024, Sunday, November 10th)
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, December 1st
+
+### 2024, Sunday, December 8th
+
+- I had a long length session today. I started gameplay in the late morning today.
+- I was not attacked since I last played.
+- The game functioned off of a Wi-Fi hot spot this week.
+- The game did not require an update this week.
+- This week, I ugpraded my fourth and final X-BOW to level 5 for 3.9 million gold, my Ice Golem troop to level 2 for 27,500 dark elixir, and 1 wall to level 11 for 1 million gold. There are still 143 walls to go... (value last checked: 2024, Sunday, December 8th)
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. - 2024, Sunday, December 8th
+
+### 2024, Sunday, December 15th
+
+<!-- Notes 2024.12.15
+Gem box
+Level 150
+140 million more gold on walls
+Wall level 11 3x (3m gold)
+Dragon level 5 (3.8m elixir)
+Minion prince level 22 (19k dark elixir)
+Builder base success, rising to 3660 trophies, after plunging far (almost below 3500)
+Builder star jar used
+Upgrading archer tower to level 8
+Plan to get defenses to level 8 or higher (excluding some, such as the X-BOW)
+Want to get one of my firecrackers to level 9, so that I can see what level 10 is like
+Browsing around
+!-->
+
+- I had a long length session today. I started gameplay in the late morning today.
+- I was not attacked since I last played.
+- The game functioned off of a Wi-Fi hot spot this week.
+- The game did not require an update this week.
+- This week, I ugpraded my minion prince to level 22 for 19,000 dark elixir, my dragon troop to level 5 for 3.8 million elixir, and 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 140 walls to go... (value last checked: 2024, Sunday, December 15th) 140 million more gold is required to max out my towh hall
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. - 2024, Sunday, December 15th
+
+### 2024, Sunday, December 22nd
+
+<!-- Notes 2024.12.22
+COC
+
+Dragon level 6
+Slow wall progress
+!-->
+
+- I had a long length session today. I started gameplay in the late morning today.
+- I was not attacked since I last played.
+- The game functioned off of a Wi-Fi hot spot this week.
+- The game did not require an update this week.
+- This week, I ugpraded my minion prince to level 23 for 21,000 dark elixir, my dragon troop to level 6 for 4.9 million elixir, and 2 of my walls to level 11 for 1 million gold each, 2 million gold total. There are still 138 walls to go... (value last checked: 2024, Sunday, December 15th) 138 million more gold is required to max out my town hall. Wall progress feels very slow right now.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- The game functioned fine off a Wi-Fi hotspot as usual this week.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. - 2024, Sunday, December 22nd
+
+### 2024, Sunday, December 29th
+
+- I had a long length session today. I started gameplay in the late morning today.
+- I was not attacked since I last played.
+- The game functioned off of a Wi-Fi hot spot this week.
+- The game did not require an update this week, although one was available.
+- This week, I ugpraded my archer troop to level 6 for 2.0 million elixir, and 4 of my walls to level 11 for 1 million gold each, 4 million gold total. There are still 134 walls to go... (value last checked: 2024, Sunday, December 15th) 134 million more gold is required to max out my town hall.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. 
+- This was my last session of the year. - 2024, Sunday, December 29th
+
+### 2025, Sunday, January 5th
+
+- I had a long length session today. I started gameplay in the early morning today.
+- I was not attacked since I last played.
+- The game functioned off of a Wi-Fi hot spot this week.
+- The game did not require an update this week, although one was available.
+- This week, I ugpraded my archer troop to level 7 for 2.5 million elixir, and 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 131 walls to go... (value last checked: 2025, Sunday, January 5th) 131 million more gold is required to max out my town hall.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. 
+- This was my first session of the year. - 2025, Sunday, January 5th
+
+### 2025, Sunday, January 12th
+
+- I had a long length session today. I started gameplay in the late morning today.
+- I was not attacked since I last played.
+- The game functioned off of a Wi-Fi hot spot this week.
+- The game did not require an update this week, although one was available.
+- This week, I ugpraded my archer troop to level 8 for 3.2 million elixir, and 2 of my walls to level 11 for 1 million gold each, 2 million gold total. There are still 129 walls to go... (value last checked: 2025, Sunday, January 12th) 129 million more gold is required to max out my town hall.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. 
+- This was my second session of the year. - 2025, Sunday, January 12th
+
+### 2025, Sunday, January 19th
+
+- I had a long length session today. I started gameplay in the late morning today.
+- I was not attacked since I last played.
+- The game functioned off of a Wi-Fi hot spot this week.
+- The game did not require an update this week, although one was available.
+- This week, I ugpraded my barbarian troop to level 8 for 2.8 million elixir, my Minion Prince to level 25 for 25,000 dark elixir, and 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 126 walls to go... (value last checked: 2025, Sunday, January 19th) 126 million more gold is required to max out my town hall.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. 
+- This was my third session of the year. - 2025, Sunday, January 19th
+
+### 2025, Sunday, January 26th
+
+<!-- Notes 2025.01.26
+Not very strong battles (none reaching 60% destruction) but still lost resources
+My base handled pretty well against these 3 attacks
+12 dragons slain within a minute
+Resource storages are immune to spell damage, but unfortunately resource collectors are not, and this is why I lost close to a million gold.
+These games are not well suited for a system where you only play one day per week, which is a little unfortunate. It would be nice if gold mines, elixir collectors, dark elixir drills, and gem mines could continue producing resources for up to 168 hours, so that I don't have 3+ days per week where they are not producing anything.
+!-->
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (124x)** | `124,000,000` | `0` |
+| **Overall total (excluding town hall)** | `124,000,000` | `0` |
+| **Overall total (including town hall)** | `130,000,000` | `0` |
+| **Town hall level 12** | `6,000,000 gold` |
+|---|---|
+
+- I had a long length session today. I started gameplay in the late morning today.
+- I was attacked 3 times since I last played. The attacks were relatively strong, but none of them reached or surpassed 60% overall destruction, although I still lost resources. My base handled surprising well against these 3 attacks, in one attack, my overall air defense managed to take out 12 dragons within a minute. Resource storages are immune to spell damage, but unfortunately resource collectors are not, and this is why I lost close to a million gold.
+- The game functioned off of a Wi-Fi hot spot as usual this week.
+- The game did not require an update this week, although one was available.
+- This week, I ugpraded my baby dragon troop to level 2 for 2.0 million elixir, my Minion Prince to level 26 for 27,000 dark elixir, and 2 of my walls to level 11 for 1 million gold each, 2 million gold total. There are still 124 walls to go... (value last checked: 2025, Sunday, January 26th) 130 million more gold is required to max out my town hall. I could have upgraded a 3rd wall today if my base hadn't been attacked 3 times.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. 
+- This was my fourth session of the year. - 2025, Sunday, January 26th
+
+### 2025, Sunday, February 4th
+
+<!-- Notes 2025.02.04
+3 walls upgraded, working on the Northern portion of my base
+Wall breaker level 7
+Battle copter level 32
+Builder base, briefly made it to Titanium III
+Relatively easy opponents in the beginning, a lot of builder hall 9 bases
+Star jar used
+Archer tower max level 10, 4.6 million gold
+Browsing around
+!-->
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (121x)** | `121,000,000` | `0` |
+| **Overall total (excluding town hall)** | `121,000,000` | `0` |
+| **Overall total (including town hall)** | `127,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a long length session today. I started gameplay in the late morning today.
+- I was not attacked since I last played
+- The game functioned off of a Wi-Fi hot spot as usual this week.
+- The game did not require an update this week, although one was available.
+- This week, I ugpraded my wall breaker troop to level 7 for 3.4 million elixir, and 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 121 walls to go... (value last checked: 2025, Sunday, February 4th) 121 million more gold is required to max out my town hall. I began upgrading walls on the Northern portion of my base.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. 
+- This was my fifth session of the year. - 2025, Sunday, February 2nd
+
+### 2025, Sunday, February 9th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (117x)** | `117,000,000` | `0` |
+| **Overall total (excluding town hall)** | `117,000,000` | `0` |
+| **Overall total (including town hall)** | `123,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid to late morning today.
+- I was not attacked since I last played
+- The game functioned off of a Wi-Fi hot spot as usual this week. There were some connection issues today for some reason, but I was never disconnected.
+- The game did not require an update this week, although one was available.
+- This week, I ugpraded my haste spell to level 4 for 30,000 dark elixir, along with 4 of my walls to level 11 for 1 million gold each, and 1 million elixir each, 2 million gold and 2 million elixir total. There are still 117 walls to go... (value last checked: 2025, Sunday, February 4th) 121 million more gold is required to max out my town hall. I began upgrading walls on the Northern portion of my base. I was very tired and out of it during gameplay today, as spending elixir on wall upgrades was a mistake. I was supposed to save up elixir for laboratory upgrades.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. 
+- This was my sixth session of the year. - 2025, Sunday, February 9th
+
+### 2025, Sunday, February 16th
+
+<!-- Notes 2025.02.16
+Required update
+300+ megabyte update
+Age question
+New font for resource collection
+Giant level 7, 3m elixir
+3 walls upgraded
+New wall upgrade process
+Builder base losses
+No gem boxes
+No upgrades today in Builder Base
+!-->
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (114x)** | `114,000,000` | `0` |
+| **Overall total (excluding town hall)** | `114,000,000` | `0` |
+| **Overall total (including town hall)** | `120,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid to late morning today.
+- I was not attacked since I last played
+- The game functioned off of a Wi-Fi hot spot as usual this week. There weren't any connection issues this week.
+- The game required an update this week. It was a large update (300+ megabytes) although not much seemed to have changed. The game did ask me for my age, and the font for resource collection changed to a more bold typeface.
+- This week, I ugpraded my giant troop to level 7 for 3,000,000 elixir, along with 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There was a new wall upgrade process, where multiple walls could be upgraded at once. There are still 114 walls to go... (value last checked: 2025, Sunday, February 16th) 120 million more gold is required to max out my town hall. I continued to upgrade walls on the Northern portion of my base.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. 
+- This was my seventh session of the year. - 2025, Sunday, February 16th
+
+<!-- Notes 2025.02.23
+Gem box
+Jump spell, need more elixir for other upgrades for next week
+3 walls, wall re-arrangement
+Average builder base battles
+Builder base archer tower level 9
+Connection issues, slow, but never kicked
+!-->
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (111x)** | `111,000,000` | `0` |
+| **Overall total (excluding town hall)** | `111,000,000` | `0` |
+| **Overall total (including town hall)** | `117,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid to late morning today.
+- I was not attacked since I last played
+- The game functioned off of a Wi-Fi hot spot as usual this week. There were connection issues this week, and the game was slow at times, but I never got kicked due to the connection.
+- The game did not require an update this week.
+- This week, I ugpraded my jump spell to level 3 for 2,000,000 elixir (due to not having enough for some other upgrades, which I will likely have enough for next week) along with my minion prince to level 27 for 29,000 dark elixir, and 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 111 walls to go... (value last checked: 2025, Sunday, February 23rd) 117 million more gold is required to max out my town hall. I continued to upgrade walls on the Northern portion of my base, and moved some around to fortify the far Northern corner
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. 
+- This was my eighth session of the year, and my final session for 2025, February. - 2025, Sunday, February 23rd
+
+### 2025, Sunday, March 2nd
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (108x)** | `108,000,000` | `0` |
+| **Overall total (excluding town hall)** | `108,000,000` | `0` |
+| **Overall total (including town hall)** | `114,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the late morning today.
+- I was not attacked since I last played
+- The game functioned off of a Wi-Fi hot spot as usual this week. There weren't any connection issues this week.
+- The game did not require an update this week.
+- This week, I ugpraded my freeze spell to level 4 for 3,000,000 elixir, along with 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 108 walls to go... (value last checked: 2025, Sunday, March 2nd) 114 million more gold is required to max out my town hall. I continued to upgrade walls on the Northern portion of my base, with the North-Western portion being almost completely solid now (almost all level 11 walls)
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. 
+- This was my ninth session of the year, and my first session for 2025, March. - 2025, Sunday, March 2nd
+
+### 2025, Sunday, March 9th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (106x)** | `106,000,000` | `0` |
+| **Overall total (excluding town hall)** | `106,000,000` | `0` |
+| **Overall total (including town hall)** | `112,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the late morning today.
+- I was not attacked since I last played
+- The game functioned off of a Wi-Fi hot spot as usual this week. There weren't any connection issues this week.
+- The game did not require an update this week.
+- This week, I ugpraded my miner troop to level 2 for 2,500,000 elixir, along with 2 of my walls to level 11 for 1 million gold each, 2 million gold total. There are still 106 walls to go... (value last checked: 2025, Sunday, March 9th) 112 million more gold is required to max out my town hall. I continued to upgrade walls on the Northern portion of my base, with the North-Western portion being almost completely solid now (almost all level 11 walls) I also upgraded my minion prince to level 28 for 31,000 dark elixir.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week
+- I eventually wrapped up and quit. 
+- This was my tenth session of the year, and my second session for 2025, March. - 2025, Sunday, March 9th
+
+### 2025, Sunday, March 16th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (103x)** | `103,000,000` | `0` |
+| **Overall total (excluding town hall)** | `103,000,000` | `0` |
+| **Overall total (including town hall)** | `109,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the early morning today, as I am working towards waking up earlier each day.
+- I was not attacked since I last played
+- The game functioned off of a Wi-Fi hot spot as usual this week. There weren't any connection issues this week.
+- The game did not require an update this week.
+- This week, I ugpraded my giant troop to level 8 for 3,500,000 elixir, along with 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 103 walls to go... (value last checked: 2025, Sunday, March 9th) 109 million more gold is required to max out my town hall. I continued to upgrade walls on the Northern portion of my base, with the North-Western portion being almost completely solid now (almost all level 11 walls)
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. 
+- This was my eleventh session of the year, and my third session for 2025, March. - 2025, Sunday, March 16th
+
+### 2025, Sunday, March 23rd
+
+<!-- Notes 2025.03.23
+100 walls left
+Upgrading witch troop to level 3 for 29000 dark elixir
+New chest opening, power pancakes
+Lots of builder base attacks, moderate success
+Upgrading battle copter to max level 35
+No other upgrades
+!-->
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (100x)** | `100,000,000` | `0` |
+| **Overall total (excluding town hall)** | `100,000,000` | `0` |
+| **Overall total (including town hall)** | `106,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the early morning today.
+- I was not attacked since I last played
+- The game functioned off of a Wi-Fi hot spot as usual this week. There weren't any connection issues this week.
+- The game did not require an update this week.
+- This week, I ugpraded my witch troop to level 3 for 29,000 dark elixir (I didn't do any upgrades with elixir, as I am saving up to upgrade my freeze spell) along with 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 100 walls to go... (value last checked: 2025, Sunday, March 23rd) 106 million more gold is required to max out my town hall. I continued to upgrade walls on the Northern portion of my base, with the North-Western portion being almost completely solid now (almost all level 11 walls) I moved some walls out to a useless wall segment, as I wanted to make it look maxed out. After a few more weeks, the walls on the defensive northern portion of the base will all be strong again in comparison to what they looked like before I moved them today (2025, March 23rd)
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I did a chest opening today, which was something new in the game. I received several rewards, and also received a boost called 'power pancakes' which I used, but didn't gain anything from, as I was not training troops in my main village. It would get wasted either way, as it automatically expires after 24 hours.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week
+- I eventually wrapped up and quit. 
+- This was my twelfth session of the year, and my fourth session for 2025, March. - 2025, Sunday, March 23rd
+
+### 2025, Sunday, March 30th
+
+<!-- Notes 2025.03.30
+Update
+4 attacks against my village, 2 successful, 2 defenses
+Gem box
+Villagers now "clean up" obstacles, instead of builders
+Cannon level 9 builder base
+Good builder base battle record
+Max level battle machine
+Freeze spell level 5
+Want level 5 earthquake spell, so that I can have a max level spell
+3 walls upgraded, 97 remain
+Device functionality issues
+Visiting the bases of those who attacked me
+2 bases were clearly rushed (several buildings were below level 5, while the town hall was level 11) 1 could have been someone who recently reached town hall 11, while 1 was a maxed town hall 13 player.
+!-->
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (97x)** | `97,000,000` | `0` |
+| **Overall total (excluding town hall)** | `97,000,000` | `0` |
+| **Overall total (including town hall)** | `103,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid morning today.
+- I was attacked 4 times since I last played. 2 attacks were successful, while 2 were defenses. I later visited the bases of those who attacked me. 2 bases were clearly rushed (several buildings were below level 5, while the town hall was level 11) 1 could have been someone who recently reached town hall 11, while 1 was a maxed town hall 13 player.
+- The game functioned off of a Wi-Fi hot spot as usual this week. There weren't any connection issues this week.
+- The game did require an update this week.
+- This week, I ugpraded my freeze spell unit to level 5 for 4,200,000 elixir. I plan to get my freeze spell to level 6 before upgrading to town hall 11, and I also plan to try and upgrade my earthquake spell to level 5, so that I can have a max level spell unit. I also upgraded 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 97 walls to go... (value last checked: 2025, Sunday, March 30th) 103 million more gold is required to max out my town hall. I continued to upgrade walls on the Northern portion of my base, with the North-Western portion being almost completely solid now (almost all level 11 walls). After a few more weeks, the walls on the defensive northern portion of the base will all be strong again in comparison to what they looked like before I moved them today (2025, March 23rd)
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week. After the update, I noticed that builders don't go and clean up obstacles, but instead, villagers go and "clean up" obstacles (rub their hands on them, clap on them, sleep on them, etc.)
+- There were some device issues today, where the power button was harder to press.
+- I eventually wrapped up and quit. 
+- This was my thirteenth session of the year, and my fifth and final session for 2025, March. - 2025, Sunday, March 30th
+
+### 2025, Sunday, April 6th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (94x)** | `94,000,000` | `0` |
+| **Overall total (excluding town hall)** | `94,000,000` | `0` |
+| **Overall total (including town hall)** | `100,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid morning today.
+- I was not attacked since I last play.
+- The game functioned off of a Wi-Fi hot spot as usual this week. There weren't any connection issues this week.
+- The game did require an update again this week.
+- This week, I ugpraded my baby dragon troop to level 3 for 2 million elixir, as I couldn't afford the 6,000,000 elixir requirement for upgrading my freeeze spell unit to level 6, nor could I afford the 42,000 dark elixir requirement for upgrading my earthquake spell to max level 5.  I also upgraded 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 94 walls to go... (value last checked: 2025, Sunday, April 6th) 100 million more gold is required to max out my town hall. I continued to upgrade walls on the Northern portion of my base, with the North-Western portion being almost completely solid now (almost all level 11 walls). After a couple more weeks, the walls on the defensive northern portion of the base will all be strong again in comparison to what they looked like before I moved them today on 2025, March 23rd.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week.
+- Device issues relating to the power button were not present today, and I was confused as to why this was, as device failure doesn't go away easily. 
+- I eventually wrapped up and quit. 
+- This was my fourteenth session of the year, and my first session for 2025, April. - 2025, Sunday, April 6th
+
+### 2025, Sunday, April 13th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (88x)** | `88,000,000` | `0` |
+| **Overall total (excluding town hall)** | `88,000,000` | `0` |
+| **Overall total (including town hall)** | `94,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid morning today.
+- I was attacked 3 times since I last played, all 3 attacks were successful. I lost a lot of dark elixir from it.
+- There has been a WWE theme in Clash of Clans for over a week now, and it is a bit annoying, and also highly disappointing. It doesn't fit the theme of the game at all, and makes the game very tacky.
+- The game functioned off of a Wi-Fi hot spot as usual this week, although I forgot to connect early. There weren't any connection issues this week.
+- The game did not require an update this week.
+- This week, I upgraded my Earthquake spell to max level 5 for 42,000 dark elixir, somehow, I was able to afford it, despite losses. I also upgraded 6 of my walls to level 11 for 1 million gold each, 3 million gold total, and 1 million elixir each, 3 million elixir total. There are still 88 walls to go... (value last checked: 2025, Sunday, April 13th) 94 million more gold is required to max out my town hall. I continued to upgrade walls on the Northern portion of my base, with the North-Western portion being almost completely solid now (almost all level 11 walls)
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point. I am now considering it, but I want to save up at least 10,500 gems first.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week.
+- I eventually wrapped up and quit. 
+- This was my fifteenth session of the year, and my second session for 2025, April. - 2025, Sunday, April 13th
+
+### 2025, Sunday, April 20th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (86x)** | `86,000,000` | `0` |
+| **Overall total (excluding town hall)** | `86,000,000` | `0` |
+| **Overall total (including town hall)** | `92,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid morning today.
+- I was not attacked since I last played.
+- There has been a WWE theme in Clash of Clans for over a week now, and it is a bit annoying, and also highly disappointing. It doesn't fit the theme of the game at all, and makes the game very tacky.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. There weren't any connection issues this week.
+- The game did not require an update this week.
+- This week, I did not upgrade anything but walls. I am saving up to upgrade my freeze spell to level 6. I only upgraded 2 of my walls to level 11 for 1 million gold each, 2 million gold total. I didn't have as much gold this week. There are still 86 walls to go... (value last checked: 2025, Sunday, April 20th) 92 million more gold is required to max out my town hall. I continued to upgrade walls on the Northern portion of my base, with the North-Western portion being almost completely solid now (almost all level 11 walls) I am starting to encroach into the North-Eastern portion of my base with the wall upgrades.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gem box available this week.
+- I eventually wrapped up and quit. 
+- This was my sixteenth session of the year, and my third session for 2025, April. - 2025, Sunday, April 20th
+
+### 2025, Sunday, April 27th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (83x)** | `83,000,000` | `0` |
+| **Overall total (excluding town hall)** | `83,000,000` | `0` |
+| **Overall total (including town hall)** | `89,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid morning today.
+- I was not attacked since I last played.
+- There has been a WWE theme in Clash of Clans for over 2 weeks now, and it is a bit annoying, and also highly disappointing. It doesn't fit the theme of the game at all, and makes the game very tacky.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. There weren't any connection issues this week.
+- The game did not require an update this week.
+- This week, I upgraded 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 83 walls to go... (value last checked: 2025, Sunday, April 27th) 89 million more gold is required to max out my town hall. I continued to upgrade walls on the North-Eastern portion of my base. I also began to upgrade my freeze spell to level 6 for 6,000,000 elixir. I was planning to save my dark elixir for next week, but near the end of the session, I decided to upgrade my Minion Prince to level 29 for 33,000 dark elixir, so that not as much dark elixir can be stolen between now and my next session, and so that there are fewer relatively cheap upgrades left requiring dark elixir. 
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gem box available this week.
+- I eventually wrapped up and quit. 
+- This was my seventeenth session of the year, and my fourth and final session for 2025, April. - 2025, Sunday, April 27th
+
+### 2025, Sunday, May 4th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (80x)** | `80,000,000` | `0` |
+| **Overall total (excluding town hall)** | `80,000,000` | `0` |
+| **Overall total (including town hall)** | `86,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid morning today.
+- I was attacked once since I last played. Luckily, I had spent the majority of my resources before quitting last week, so not much could be lost. Somehow, an attack with a single level 30 Archer Queen with no support troops or spells managed to destroy 16% of my village, with very minimal resource losses (9,060 gold, 4,532 elixir)
+- The WWE theme was finally gone today, but I expect something similar will unfortunately likely come up again the future.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. There weren't any connection issues this week.
+- The game did not require an update this week.
+- This week, I upgraded 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 80 walls to go... (value last checked: 2025, Sunday, April 27th) 86 million more gold is required to max out my town hall. I continued to upgrade walls on the North-Eastern portion of my base. I also began to upgrade my lightning spell to level 7 for 2,500,000 elixir.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gem box available this week.
+- I eventually wrapped up and quit. 
+- This was my eighteenth session of the year, and my first session for 2025, May. - 2025, Sunday, May 4th
+
+### 2025, Sunday, May 11th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (77x)** | `77,000,000` | `0` |
+| **Overall total (excluding town hall)** | `77,000,000` | `0` |
+| **Overall total (including town hall)** | `83,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a long length session today. I started gameplay in the mid morning today.
+- I was not attacked since I last played.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. There weren't any connection issues this week.
+- The game did not require an update this week.
+- This week, I upgraded 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 77 walls to go... (value last checked: 2025, Sunday, May 11th) 83 million more gold is required to max out my town hall. I continued to upgrade walls on the North-Eastern portion of my base. I also began to upgrade my P.E.K.K.A troop to level 6 for 2,500,000 elixir, along with my minion prince hero to level 30 for 35,000 dark elixir.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gem boxes available this week.
+- I eventually wrapped up and quit. 
+- This was my ninteenth session of the year, and my second session for 2025, May. - 2025, Sunday, May 11th
+
+### 2025, Sunday, May 18th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (75x)** | `75,000,000` | `0` |
+| **Overall total (excluding town hall)** | `75,000,000` | `0` |
+| **Overall total (including town hall)** | `81,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid morning today.
+- I was not attacked since I last played.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. There weren't any connection issues this week.
+- The game did not require an update this week.
+- This week, I upgraded 2 of my walls to level 11 for 1 million gold each, 2 million gold total. There are still 75 walls to go... (value last checked: 2025, Sunday, May 11th) 81 million more gold is required to max out my town hall. I continued to upgrade walls on the North-Eastern portion of my base. I am now moving on to the Eastern portion. I also began to upgrade my balloon troop to level 6 for 2,750,000 elixir
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gem box available this week.
+- I eventually wrapped up and quit. 
+- This was my twentieth session of the year, and my third session for 2025, May. - 2025, Sunday, May 18th
+
+### 2025, Sunday, May 25th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (72x)** | `72,000,000` | `0` |
+| **Overall total (excluding town hall)** | `72,000,000` | `0` |
+| **Overall total (including town hall)** | `78,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid morning today.
+- I was not attacked since I last played.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. There were connection issues constantly today, with the connectivity status constantly popping up, but the game never kicking me out.
+- The game did not require an update this week.
+- This week, I upgraded 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 72 walls to go... (value last checked: 2025, Sunday, May 25th) 78 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. I also upgraded my minion troop to level 7 for 31,500 dark elixir, and I continued to save up elixir. I plan to upgrade my balloon troop to level 7 next.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week.
+- I eventually wrapped up and quit. 
+- This was my twenty-first session of the year, and my fourth and final session for 2025, May. - 2025, Sunday, May 25th
+
+### 2025, Sunday, June 1st
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (69x)** | `69,000,000` | `0` |
+| **Overall total (excluding town hall)** | `69,000,000` | `0` |
+| **Overall total (including town hall)** | `75,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a long length session today. I started gameplay in the mid morning today.
+- I was not attacked since I last played.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. There weren't any connection issues this week.
+- The game did not require an update this week.
+- This week, I upgraded 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 69 walls to go... (value last checked: 2025, Sunday, June 1st) 75 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. I also upgraded my balloon troop to level 7 for 4,400,000 elixir.
+- I am still not planning to buy the builders apprentice anytime soon. I also fear it may be a temporary item, which is something I will need to get confirmed before I can even consider buying it. I need to get an answer on this at some point.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week.
+- I spent some time browsing around and looking at upgrades, and also hero skins.
+- I eventually wrapped up and quit.
+- This was my twenty-second session of the year, and my first session for 2025, June. - 2025, Sunday, June 1st
+
+### 2025, Sunday, June 8th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (67x)** | `67,000,000` | `0` |
+| **Overall total (excluding town hall)** | `67,000,000` | `0` |
+| **Overall total (including town hall)** | `73,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a long length session today. I started gameplay in the mid morning today.
+- I was not attacked since I last played.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. There weren't any connection issues this week.
+- The game did not require an update this week.
+- This week, I upgraded 2 of my walls to level 11 for 1 million gold each, 2 million gold total. There are still 67 walls to go... (value last checked: 2025, Sunday, June 8th) 73 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. I also upgraded my goblin troop to level 7 for 2,200,000 elixir.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week.
+- I spent some time browsing around and looking at upgrades, and also village layout skins.
+- I eventually wrapped up and quit.
+- This was my twenty-third session of the year, and my second session for 2025, June. - 2025, Sunday, June 8th
+
+### 2025, Sunday, June 15th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (64x)** | `64,000,000` | `0` |
+| **Overall total (excluding town hall)** | `64,000,000` | `0` |
+| **Overall total (including town hall)** | `70,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a long length session today. I started gameplay in the mid morning today.
+- I was attacked 4 times since I last played, although the game only listed 1 attack in the welcome back prompt, and 3 in notifications.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. There weren't any connection issues this week.
+- The game did not require an update this week.
+- The game had an event that changed the appearance of gold storages and elixir collectors, turning them into vaults, and changing their description.
+- This week, I upgraded 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 64 walls to go... (value last checked: 2025, Sunday, June 15th) 70 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. I also upgraded my golem troop to level 7 for 38,500 dark elixir.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week.
+- I spent some time browsing around and looking at upgrades.
+- I eventually wrapped up and quit.
+- This was my twenty-fourth session of the year, and my third session for 2025, June. - 2025, Sunday, June 15th
+
+### 2025, Sunday, June 22nd
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (62x)** | `62,000,000` | `0` |
+| **Overall total (excluding town hall)** | `62,000,000` | `0` |
+| **Overall total (including town hall)** | `68,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the late morning today. I overslept today, and started gameplay later than desired.
+- I was attacked 5 times since I last played, although the game only listed 1 attack in the welcome back prompt.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. I was kicked from the hot spot early on, as my phone randomly crashed and restarted. I then played without a hot spot for a bit, before the game kicked me again, and I had to go back to the hot spot.
+- The game required an update this week.
+- The game has an ongoing event that changed the appearance of gold storages and elixir collectors, turning them into vaults, and changing their description.
+- This week, I upgraded 2 of my walls to level 11 for 1 million gold each, 2 million gold total. There are still 62 walls to go... (value last checked: 2025, Sunday, June 22nd) 68 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. I also upgraded my invisibility spell to level 2 for 5,000,000 elixir.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week.
+- I didn't have the time to browsing around and look at upgrades this week.
+- I eventually wrapped up and quit.
+- This was my twenty-fifth session of the year, and my fourth session for 2025, June. - 20255, Sunday, June 22nd
+
+### 2025, Sunday, June 29th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (59x)** | `59,000,000` | `0` |
+| **Overall total (excluding town hall)** | `59,000,000` | `0` |
+| **Overall total (including town hall)** | `65,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the late morning today. I overslept slightly today, and started gameplay later than desired.
+- I was not attacked since I last played, but during the end of my session, I spent some time visiting the bases that attacked me in the past 3 weeks, and also documented some of the troops and spells that were cut off in previous screenshots (they required scrolling to see)
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. The hot spot worked fine this week, and I wasn't kicked.
+- The game did not require an update this week.
+- The game has an ongoing event that changed the appearance of gold storages and elixir collectors, turning them into vaults, and changing their description.
+- This week, I upgraded 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 59 walls to go... (value last checked: 2025, Sunday, June 29th) 65 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. I also upgraded my valkyrie troop to level 6 for 31,500 dark elixir, as I didn't have enough elixir to do the P.E.K.K.A. upgrade that I wanted (I likely will next week)
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week.
+- I eventually wrapped up and quit.
+- This was my twenty-sixth session of the year, and my fifth and final session for 2025, June. - 2025, Sunday, June 29th
+
+### 2025, Sunday, July 6th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (54x)** | `54,000,000` | `0` |
+| **Overall total (excluding town hall)** | `54,000,000` | `0` |
+| **Overall total (including town hall)** | `60,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid morning today.
+- I was not attacked since I last played.
+- Based on a notification, I thought that all resource collector production would be doubled for the rest of the summer, but was disappointed that it only applied to gold production (this week) and only lasted for this week. 
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. The hot spot worked fine this week, and I wasn't kicked.
+- The game did not require an update this week.
+- This week, I upgraded 5 of my walls to level 11 for 1 million gold each, 5 million gold total. There are still 54 walls to go... (value last checked: 2025, Sunday, July 6th) 60 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. I also upgraded my P.E.K.K.A troop to level 7 for 4,500,000 elixir.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week.
+- I eventually wrapped up and quit.
+- This was my twenty-seventh session of the year, and my first session for 2025, July. - 2025, Sunday, July 6th
+
+### 2025, Sunday, July 13th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (52x)** | `52,000,000` | `0` |
+| **Overall total (excluding town hall)** | `52,000,000` | `0` |
+| **Overall total (including town hall)** | `58,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid morning today.
+- I was attacked 4 times since I last played, and lost some resources
+- Elixir collector production was doubled this week, but due to raids, I could not do a 4.2 million elixir that I wanted to do.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. The hot spot worked fine this week, and I wasn't kicked.
+- The game required an update this week.
+- This week, I upgraded 2 of my walls to level 11 for 1 million gold each, 2 million gold total. There are still 52 walls to go... (value last checked: 2025, Sunday, July 13th) 58 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. I also upgraded my Healer troop to level 5 for 4,000,000 elixir.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week.
+- I eventually wrapped up and quit.
+- This was my twenty-eighth session of the year, and my second session for 2025, July. - 2025, Sunday, July 13th
+
+### 2025, Sunday, July 20th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (50x)** | `50,000,000` | `0` |
+| **Overall total (excluding town hall)** | `50,000,000` | `0` |
+| **Overall total (including town hall)** | `56,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid morning today.
+- I was attacked 9 times since I last played, and lost significant resources I received 1-2 notifications every day this week relating to a raid on my village, and this was the most I have ever been attacked in a 1 week period. The in-game welcome back message only showed 1 raid
+- Elixir collector production was increased this week.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. The hot spot worked fine this week, and I wasn't kicked.
+- The game did not require an update this week.
+- This week, I upgraded 2 of my walls to level 11 for 1 million gold each, 2 million gold total. There are still 50 walls to go... (value last checked: 2025, Sunday, July 20th) 56 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. I also upgraded my healing spell to level 7 for 3,000,000 elixir.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week.
+- I eventually wrapped up and quit.
+- This was my twenty-ninth session of the year, and my third session for 2025, July. - 2025, Sunday, July 20th
+
+### 2025, Sunday, July 27th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (45x)** | `45,000,000` | `0` |
+| **Overall total (excluding town hall)** | `45,000,000` | `0` |
+| **Overall total (including town hall)** | `51,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid morning today.
+- I was attacked 3 times since I last played, and lost some resources. Due to this, there were some upgrades that I couldn't get to with the elixir instead, so I spent some elixir on wall upgrades today,
+- Dark elixir drill production was increased this week.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. The hot spot worked fine this week, and I wasn't kicked.
+- The game did not require an update this week.
+- This week, I upgraded 5 of my walls to level 11 for 1 million gold/elixir each, 2 million gold and 3 million elixir total. There are still 45 walls to go... (value last checked: 2025, Sunday, July 27th) 51 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. Due to not having enough elixir for an upgrade I wanted, I decided to spend most of my elixir (so that less of it would be looted) and upgraded my witch troop to level 4 for 45,000 dark elixir.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week.
+- I eventually wrapped up and quit.
+- This was my thirtieth session of the year, and my fourth and final session for 2025, July. - 2025, Sunday, July 27th
+
+### 2025, Sunday, August 3rd
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (40x)** | `40,000,000` | `0` |
+| **Overall total (excluding town hall)** | `40,000,000` | `0` |
+| **Overall total (including town hall)** | `46,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid morning today.
+- I was attacked 3 times since I last played, and lost some resources. Due to an ongoing resource event, where gold, elixir, and dark elixir production was doubled, this had little impact, and I was still able to do the upgrades I wanted, plus some.
+- A couple of days ago (on 2025, August 1st) Clash of Clans turned 13 years old. There was a special skin available with the village in Clash-a-Rama style.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. The hot spot worked fine this week, and I wasn't kicked.
+- The game did not require an update this week.
+- This week, I upgraded 5 of my walls to level 11 for 1 million gold each, 5 million gold total. There are still 40 walls to go... (value last checked: 2025, Sunday, August 3rd) 46 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. I also began to upgrade my lightning spell to level 8 for 4,200,000 elixir.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week.
+- I eventually wrapped up and quit.
+- This was my thirty-first session of the year, and my first session for 2025, August. - 2025, Sunday, August 3rd
+
+### 2025, Sunday, August 10th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (36x)** | `36,000,000` | `0` |
+| **Overall total (excluding town hall)** | `36,000,000` | `0` |
+| **Overall total (including town hall)** | `42,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a normal length session today. I started gameplay in the mid morning today.
+- I was not attacked since I last played.
+- Clash of Clans is still celebrating its 13th anniversary with the 13th clashiversary event. There was a special skin available with the village in Clash-a-Rama style.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. The hot spot worked fine this week, and I wasn't kicked.
+- The game did not require an update this week.
+- This week, I upgraded 4 of my walls to level 11 for 1 million gold each, 3 million gold total, and 1 million elixir each, 1 million elixir total. There are still 36 walls to go... (value last checked: 2025, Sunday, August 3rd) 42 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. I also began to upgrade my clone spell to level 3 for 2,500,000 elixir. I am starting to run low on laboratory upgrades that require elixir.
+- I utilized an ongoing event, and spent some medals on rare ore, along with some regular elixir and some dark elixir,
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gembox available this week.
+- I eventually wrapped up and quit.
+- This was my thirty-second session of the year, and my second session for 2025, August. - 2025, Sunday, August 10th
+
+### 2025, Sunday, August 17th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (34x)** | `34,000,000` | `0` |
+| **Overall total (excluding town hall)** | `34,000,000` | `0` |
+| **Overall total (including town hall)** | `40,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a long length session today. I started gameplay in the mid morning today.
+- I was not attacked since I last played.
+- Clash of Clans is still celebrating its 13th anniversary with the 13th clashiversary event. There was an event where pop elixir was earned, although I don't play frequently enough to be able to get anything from it.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. The hot spot worked fine this week, and I wasn't kicked.
+- The game did not require an update this week.
+- This week, I upgraded 2 of my walls to level 11 for 1 million gold each, 2 million gold total. There are still 34 walls to go... (value last checked: 2025, Sunday, August 17th) 40 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. I also began to upgrade my wizard troop to level 7 for 2,500,000 elixir, along with my archer queen to level 42 for 61,000 dark elixir. I am starting to run low on laboratory upgrades that require elixir.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gemboxes available this week.
+- I eventually wrapped up and quit.
+- This was my thirty-third session of the year, and my third session for 2025, August. - 2025, Sunday, August 17th
+
+### 2025, Sunday, August 24th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (31x)** | `31,000,000` | `0` |
+| **Overall total (excluding town hall)** | `31,000,000` | `0` |
+| **Overall total (including town hall)** | `37,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a long length session today. I started gameplay in the mid morning today.
+- I was attacked twice since I last played, one attack was successful, while the other was a defense. I lost significant resources from both attacks.
+- The game functioned off of a Wi-Fi hot spot as usual this week, and I made sure to connect to it before starting. The hot spot worked fine this week, and I wasn't kicked.
+- The game did not require an update this week.
+- This week, I upgraded 3 of my walls to level 11 for 1 million gold each, 3 million gold total. There are still 31 walls to go... (value last checked: 2025, Sunday, August 23rd) 37 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. I also began to upgrade my baby dragon troop to level 4 for 2,800,000 elixir. I am starting to run low on laboratory upgrades that require elixir.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gem box available this week.
+- I eventually wrapped up and quit.
+- This was my thirty-fourth session of the year, and my fourth session for 2025, August. - 2025, Sunday, August 24th
+
+### 2025, Sunday, August 31st
+
+<!-- Notes 2025, August 31st
+Game session notes
+
+Attacked too many times, unable to afford any laboratory upgrades, focusing solely on walls
+Barely stayed in Titanium League II, dropped out once
+Several walls upgraded in builder base
+Star jar used
+!-->
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (27x)** | `27,000,000` | `0` |
+| **Overall total (excluding town hall)** | `27,000,000` | `0` |
+| **Overall total (including town hall)** | `33,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a medium length session today. I started gameplay in the early afternoon today.
+- I was attacked 9 times since I last played, 3 attacks were successful, while the other 6 were defenses. I lost significant resources from both attacks, and was unable to do any laboratory upgrades this week.
+- The game did not function off of a Wi-Fi hot spot this week, as it was too slow where I currently am (the game refused to load off of a Boost mobile Wi-Fi hot spot)
+- The game did not require an update this week.
+- This week, I upgraded 4 of my walls to level 11 for 1 million gold each, 2 million gold total, and 1 million elixir each, 2 million elixir total. There are still 27 walls to go... (value last checked: 2025, Sunday, August 31st) 33 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. I was attacked too many times, and could not do any laboratory upgrades, which is why I upgraded walls with my remaining elixir instead.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gem boxes available this week.
+- I eventually wrapped up and quit.
+- This was my thirty-fifth session of the year, and my fifth and final session for 2025, August. - 2025, Sunday, August 31st
+
+### 2025, Sunday, September 7th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (23x)** | `23,000,000` | `0` |
+| **Overall total (excluding town hall)** | `23,000,000` | `0` |
+| **Overall total (including town hall)** | `29,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a medium length session today. I started gameplay in the late morning today.
+- I was attacked 12 times since I last played, 6 attacks were successful, while the other 6 were defenses. I lost significant resources from the 12 attacks, and wasn't able to do any elixir laboratory upgrades, although I wasn't anticipating it regardless. This situation is starting to become like Boom Beach, where I lose more resources than I can comfortably.
+- The game did function off of a Wi-Fi hot spot this week.
+- The game did not require an update this week.
+- This week, I upgraded 4 of my walls to level 11 for 1 million gold each, 2 million gold total, and 1 million elixir each, 2 million elixir total. There are still 23 walls to go... (value last checked: 2025, Sunday, September 7th) 29 million more gold is required to max out my town hall. I continued to upgrade walls on the Eastern portion of my base. I was attacked too many times, and could not do any elixir laboratory upgrades, although I was able to do a dark elixir laboratory upgrade, upgrading my haste spell to level 5 for 38,500 dark elixir. There was a price reduction, but it didn't kick in until a little while after I visited the builder base.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- I got my army ready for battle today, as it is looking like I am going to need to do player attacks to gain the resources needed to upgrade my town hall (when the time comes)
+- There was 1 gem box available this week.
+- I eventually wrapped up and quit.
+- This was my thirty-sixth session of the year, and my first session for 2025, September. - 2025, Sunday, September 7th
+
+### 2025, Sunday, September 14th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (17x)** | `17,000,000` | `0` |
+| **Overall total (excluding town hall)** | `17,000,000` | `0` |
+| **Overall total (including town hall)** | `23,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a medium length session today. I started gameplay in the late morning today.
+- I was attacked 6 times since I last played, 4 attacks were successful, while the other 2 were defenses. I lost significant resources from the attacks, but still had enough elixir to do a laboratory upgrade, although I decided to upgrade walls instead.
+- The game did function off of a Wi-Fi hot spot this week.
+- The game did not require an update this week.
+- This week, I upgraded 6 of my walls to level 11 for 950,000 gold each, 2,850,000 gold total, and 950,000 elixir each, 2,850,000 million elixir total. There are still 17 walls to go... (value last checked: 2025, Sunday, September 14th) 23 million more gold is required to max out my town hall. I began to upgrade walls on the Western portion of my base.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gem box available this week.
+- I eventually wrapped up and quit.
+- This was my thirty-seventh session of the year, and my second session for 2025, September. - 2025, Sunday, September 14th
+
+### 2025, Sunday, September 21st
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (13x)** | `13,000,000` | `0` |
+| **Overall total (excluding town hall)** | `13,000,000` | `0` |
+| **Overall total (including town hall)** | `19,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a medium length session today. I started gameplay in the late morning today.
+- I was attacked 1 time since I last played, the attacks were successful, but I didn't lose very many resources.
+- The game did function off of a Wi-Fi hot spot this week, with some issues in the beginning (I didn't get kicked, but it was acting like I would twice)
+- The game did not require an update this week.
+- This week, I upgraded 4 of my walls to level 11 for 950,000 gold each, 1,900,000 gold total, and 950,000 elixir each, 1,900,000 million elixir total. There are still 14 walls to go... (value last checked: 2025, Sunday, September 21st) 13/19 million more gold is required to max out my town hall. I began to upgrade walls on the Eastern portion of my base.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gem boxes available this week.
+- I eventually wrapped up and quit.
+- This was my thirty-eighth session of the year, and my third session for 2025, September. - 2025, Sunday, September 21st
+
+### 2025, Sunday, September 28th
+
+| Upgrades left | Gold | Elixir |
+|---|---|---|
+| **Walls (3x)** | `3,000,000` | `0` |
+| **Overall total (excluding town hall)** | `3,000,000` | `0` |
+| **Overall total (including town hall)** | `9,000,000` | `0` |
+| **Town hall level 12** | `6,000,000` | `0` |
+|---|---|
+
+- I had a medium length session today. I started gameplay in the late morning today. I also had 2 sessions before today, on 2025, Friday, September 26th, and 2025, Saturday, September 27th. These sessions were partial sessions, where I collected resources, and upgraded walls, also upgrading a spell. I did not do any battles during these sessions.
+- I was attacked 4 times since I last played, the attacks were successful, but I didn't lose too many resources.
+- The game did function off of a Wi-Fi hot spot this week, although my 2025, Friday, September 26th, and 2025, Saturday, September 27th sessions were played without a Wi-Fi hot spot.
+- The game did not require an update this week.
+- This week, I upgraded 5 of my walls to level 11 for 950,000 gold each, 4,750,000 gold total, and 5 of my walls to level 11 for 950,000 elixir each, 4,750,000 million elixir total. There are still 3 walls to go... (value last checked: 2025, Sunday, September 28th) 3/9 million more gold is required to max out my town hall. I began to upgrade walls on the Southern portion of my base. I also upgraded my poison spell to level 5 for 33,250 dark elixir.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gem box available this week.
+- I eventually wrapped up and quit.
+- This was my thirty-ninth session of the year, and my fourth and final session for 2025, September. - 2025, Sunday, September 28th
+
+### 2025, Sunday, October 5th
+
+<!-- notes
+2025.10.01 and below
+Gem box
+Resource potions
+Laboratory boost
+Bat spell level 4
+Final wall 2025, September 29th
+Halloween update
+Daily gameplay
+Connection issues start on day 3, absent from first 2 days
+Prices go back up 2025, October 1st
+Another shield bought for 250 gems on 2025, October 1st, thought the guard on the original shield would last 5 days (turns out that is the time you cannot buy that particular shield again)
+
+2025.10.02
+Wizard level 8, (3,100,000 elixir) (2025, October 2nd)
+Town Hall level 12 (2025, October 2nd)
+Barbarian Kingn lelel 41 (58,000 dark elixir) (2025, October 2nd)
+ 
+2025.10.03
+Significant connection issues, fixed (without using a hot spot) by updating game
+Home Wi-Fi then went out a few times
+Resource collection and building re-arrangement, preparing for town hall 12
+Builder potion used
+!-->
+
+- I played every day this week. Between 2025, September 28th and 2025, September 30th, I cleaned up a gem box, used several resource potions to increase collector production, laboratory research speed, and clock tower potions. On 2025, September 29th, I upgraded my bat spell to level 4 for 33,250 dark elixir. Also on 2025, September 29th, I upgraded my final wall to level 12. A Halloween update kicked in during one of these sessions. On 2025, October 1st, upgrade costs went back up to their normal price. I bought a second shield for 250 gems on 2025, October 1st, as I thought the guard on the original shield would last 5 days (turns out that is the time you cannot buy that particular shield again) I was disappouinted to have spent so many gems. On 2025, October 2nd, I began to upgrade my Wizard troop to level 8 for 3,100,000 elxir, my Barbarian King to level 41 for 58,000 dark elixir, and at long last, my Town Hall to level 12 for 6m,000,000 gold. The upgrade will take 6 days. During all of the daily sessions, I did nto use a hot spot. On 2025, October 3rd, there were significant connection issues, anfd I fixed them without using a hot spot by updsting the game. The Wi-Fi at my house briefly went out a few times as well. Also on 2025, October 3rd, I did resource collection, and re-arranged buildings, in preparation for Town Hall 12, making space for the new buildings and traps. I also used a builder potion to rush my town hall a few hours, so that I could  come back and have about 1 and a half hours between the town hall upgrading to level 12, and the shield wearing off, so that I can start building construction before being raided. 2025, I had a normal set of collection sessions on 2025, October 4th, and decided to have my Sunday session after midnight, and before 2:00 am, so that I wouldn't have to do it later. I did not do any battles during these sessions.
+- I was not attacked since I last played.
+- The game did function off of a Wi-Fi hot spot this week only on the first Sunday session, the other sessions did not use a hot spot.
+- The game did not require an update this week, but I installed on anyways.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gem box available this week.
+- I eventually wrapped up and quit.
+- This was my fortieth weekly session of the year, and my first weekly session for 2025, October. - 2025, Sunday, October 5th
+
+### 2025, Sunday, October 12th
+
+<!-- notes
+Clash of Clans 2025.10.06
+Morning session went on too long
+Update required to play
+Major UI changes
+Trophies seemingly removed from main village
+Laboratory boost
+Bowler upgraded to level 3 for 44,000 dark elixir
+
+Clash of Clans 2025.10.07
+Game maintenance, no morning session
+Gem box
+Short gameplay today
+
+Clash of Clans 2025.10.08
+1st session
+Town hall 12 imminent
+Builder base battles, ended with 4115 trophies
+Level up 153
+Town hall upgraded 10:37:27 am
+5 day resource boost, cannot get guard
+Workshop bigger than expected, making room for it (2 days, 2,400,000 elixir)
+New 3rd interno tower 1,000,000 gold
+New 5th hidden tesla 250,000 gold
+7th and 8th sprting traps, 2000 gold each, 4000 gold total
+New 6th air bomb, 4000 gold
+New 6th giant bomb, 12,500 gold
+New 6th seeki ng air mine, 12,000 gold
+First gold mine upgraded to level 15, 1,200,000 elixir
+First elixir collector upgraded to level 15, 1,200,000 gold
+Push trap upgraded to level 2, 150,000 gold
+
+2nd session
+Giant bomb upgraded to level 2, 75,000 gold
+Hidden tesla upgraded to level 2, 350,000 gold
+
+3rd session
+Second gold mine upgraded to level 15, 1,200,000 elixir
+
+4th session
+Hidden Tesla upgraded to level 3 for 500,000 gold
+
+5th session
+Attacked, lost a lot of resources
+Attacker was a rushed town hall 13, 100% destruction on my village
+Saving dark elixir back up
+Hog rider upgraded to level 7 for 35,000 dark elixir
+Hidden tesla upgraded to level 3 for 500,000 gold
+
+Clash of Clans 2025.10.09
+Maintenamnc again, no morning session
+
+Session 1
+Third gold mine upgraded to level 15, 1,200,000 elixir
+Spring trap upgraded to level 4 for 350,000 gold
+Hidden tesla upgraded to level 4 for 600,000 gold
+Air bomb upgraded to level 2 for 20,000 gold
+
+Session 2
+Air bomb upgraed to level 3 for 75,000 gold
+
+Session 3
+Alchemist bought for 100 gems
+10,000 dark elixir convertedd to 1,515,000 gold
+Second elixir collector upgraded to level 15 for 1,200,000 gold
+Giant bomb upgraded to level 3 for 220,000m gold
+
+Session 4
+Air bomb upgraded to level 4 for 300,000 gold
+
+Session 5
+Air bomb upgraded to level 5 for 550,000 gold
+
+Clash of Clans 2025.10.10
+Session 1
+Village raided, little resource loss
+Cosmic rock event
+Fourth gold mine upgraded to level 15, 1,200,000 elixir
+First siege machine built
+Hidden tesla upgraded to level 5 flor 800,000 gold
+Connection issues, no hot spot
+Excessive session
+Builder base wall upgrades, clock tower, and clock tower potion
+Decided to upgrade alchemist to level 2 for 250 gems, more gems spent, peak: 13,107 gems
+
+Session 2
+Builder base wall upgrade, 60 walls to go (with gold)
+Alchemist trade: 15,000 dark elixir for 2,295,000 gold
+Third elixir collector upgraded to level 15 for 1,200,000 gold
+Fourth elixir collector upgraded to level 15 for 1,200,000 gold
+Browsing around
+
+Session 3
+Village raided, 100% destruction
+Spring trap upgraded to level 5, 800,000 gold
+Playing with super troops
+
+Clash of Clans 2025.10.11
+Session 1
+Clock tower boost
+Seeking air mine upgraded to level 2, 600,000 gold
+Builder base wall upgrade
+
+Session 2
+Resource conversion, 15,000 dark elixir
+Fifth elixir collector upgraded to level 15 for 1,200,000 gold
+Sixth elixir collector upgraded to level 15 for 1,200,000 gold
+
+Session 3
+Fifth gold mine upgraded to level 15, 1,200,000 elixir
+
+Sessin 4
+Villages raided 3 times, 2 unsuccessful attempts, all 3 battles within a 10 minute window
+Spring trap upgraded to level 4 for 350,000 gold
+Builder base wall upgrade
+
+Clash of Clans 2025.10.12
+PART 1
+Session 1
+Spring trap upgraded to level 5 for 800,000 gold
+Builder base battles
+Ending with 4138 trophies
+Wall upgrades only
+53 walls left to upgrade to level 6, 12,720,000 gold needed
+
+!-->
+
+- I played every day this week, playing multiple times every day between 2025, October 6th and 2025, October 12th. 
+- On my 2025, October 6th session, my first session of the day took way too long. The game required an update to play, and there were massive UI cvhanges. Trophies seemed to have been removed from the main village,  but not the builder base. I activated a laboratory boost, and upgraded my bowler troop to level 3 for 44,000 dark elixir.
+- On my 2025, October 7th session, I was unable to have a morning session, as the game was undergoing maintenance. Later on, I cleaned upa gembox. Gamerplay was pretty short today.
+- On my 2025, October 8th session, during the first session of five, the completion of my Town Hall 12 upgrade was immimnent. I now plan on doing builder base battles on Wednesdays and Sundays. I did builder base battles, ending with 4,115 trophies. At 10:37:27 am, my town hall upgraded to level 12, and I leveled up to level 153. I was given a 5 day resource boost, but couldn't buy a guard to protect this. The new workshop structure was bigger than expected, and I had to make room for it. It costs 2,400,000 elixir, and takes 2d days to build. I also began construction on a third inferno tower, at the cost of 1,000,000 gold, along with a fifth hidden tesla for 250,000 gold, my seventh and eighth spring traps for 2,000 gold each, 4000 gold total, a sixth air bomb for 4,000 gold, a sixth giant bomb for 12,500 gold, and a sixth seeking air mine for 12,000 gold. I also upgraded my first gold mine to level 15 for 1,200,000 elixir, and my first elixir collector to level 15 for 1,2000,000 gold, additionally upgrading a push trap to level 2 for 150,000 gold. During my second session of the day, I upgraded my giant bomb to level 2 for 75,000 gold, and a hidden tesla to level 2 for 350,000 gold. During my third session of the day, I upgraded a second gold mine to level 15 for 1,200,000 elixir. During my fourth session of the day, I upgraded the new hidden tesla to level 3 for 500,000 gold. During my fifth and final session of the day, I had been attacked, and lost a lot of resources, as a ruhsed town hall 13p player inflicted 100% destruction on my village. I worked on saving some dark elixir back up, then upgraded my hog rider troop to level 7 for 35,000 dark elixir.
+- On my 2025, October 9th session, I couldn't play in the morning again, as the game was again undergoing maintenance. During my first session of the day, I upgraded a third gold mine to level 15 for 1,200,000 elixir, a spring trap to level 4 for 350,00 gold, a hidden tesla to level 4 for 600,000 gold, and an air bomb to level 2 for 20,000 gold. During my second session of the day, I upgraded my air bomb to level 3 for 75,000 gold. During my third sdession of the day, I decided to buy the alchemist for 100 gems, and then converted 10,000 dark elixir for 1,515,000 gold. With the new funds, I upgraded a second elixir collector to level 15 for 1,200,000 gold, alonig with a giant bomb to level 3 for 220,000 gold. During my fourth session of the day, I upgraded my new air bomb to level 4 for 300,000 gold. During my fifth and final session of the day, I upgraded my air bomb to level 5 for 550,000 gold.
+- On my 2025, October 10th session, during my first session of the day, my viollahge was raided, but I received limited resource losses. There was an event called Cosmic Rock. I upgraded my fourth gold mine to level 15 for 1,200,000 elixir, and also constructed my first siege machine. Additio nally, I upgraded a hidden tesla to level 5 for 800,000 gold. I was having connection issues, although I had been doing fine without a hot spot this whole time (only using it on Sundays first session) I had an excessive session, doing several builder base wall upgrades, using both my clock tower boost, and a clock tower potion. I decided to upgrade my alchemist to level 2 for 250 gems, meaning more gems were spent. I peaked at 13,107 gems. During my second session of the day, I did some builder base wall upgrades. 60 more walls need to be upgraded to level 6 for 240,000 gold each, 14,400,000 gold total. I did an alchemist trade, exchanging 15,000 dark elixir for 2,295,000 gold. I also upgraded a third elixir collector to level 15 for 1,200,000 gold, and fourth elixir collector to level 15 for 1,200,000 gold, befor ebrowsing around. During my third session of the day, my village was raided, receiving 100% destruction. I upgraded a spring trap to level 5 for 800,000 gold, and played around with super troops.
+- On my 2025, October 11th session, during my first session of the day, I used a clock tower boost in my builder base, and upgraded a seeking air mine to level 2 for 600,000 gold 1in my main base, also doing a builder base wall upgrade. During my second session of the day, I did further resource conversion, trading 15,000 dark elixir for 2,295,000 gold. I then upgraded my fifth and sixth elixir collectors to level 15 for 1,200,000 gold each, 2,400,000 gold total. During my third session of the day, I upgraded a fifth gold mine to level 15 for 1,200,000 elixir. Later, during my fourth and final session of the day, my village was raided 3 times, with 2 unsuccessful attacks, and 1 successful attack, all 3 attacks happening within a 10 minute window. I upgraded a spring trap to level 4 for 350,000 gold, and did a builder base wall upgrade.
+- On my 2025, October 12th session, during my first session of the day, I upgraded a spring trap to level 5 for 800,000 gold, then began to do builder base battles, doign moderately well, and ending with 4,138 trophies. I only did wall upgrades here, with there being 53 walls left to upgrade to level 6, with 12,720,000 gold needed to finish this process. I have noted that I am progressing significantly faster by doing daily sessions, and should have been doing this the whole time.
+- I was attacked 4 times since I last played.
+- The game did function off of a Wi-Fi hot spot this week only on the first Sunday session, the other sessions did not use a hot spot.
+- The game required an update this week.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it, as I don't see it as worth it. I don't plan on upgrading the laboratory assistant either, as it seems pretty useless.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gem box available this week.
+- I eventually wrapped up and quit.
+- This was my forty-first weekly session of the year, and my first second session for 2025, October. - 2025, Sunday, October 12th
+
+### 2025, Sunday, October 19th
+
+<!-- Notes 2025.10.19
+Clash of Clans 2025.10.12
+PART 1
+Session 1
+Spring trap upgraded to level 5 for 800,000 gold
+Builder base battles
+Ending with 4138 trophies
+Wall upgrades only
+53 walls left to upgrade to level 6, 12,720,000 gold needed
+
+PART 2
+Session 2
+Resource collection only
+
+Session 3
+Seventh gold mine upgraded to level 15 for 1,200,000 elixir
+
+Session 4
+15,000 dark elixir traded for 2,295,000 gold
+Seventh elixir collector upgraded to level 15 for 1,200,000 gold
+Wanted to upgrade geared-up archer tower, short on 54,737 gold
+Upgraded geared-up cannon to level 16 for 1,300,000 gold
+Clan castle reinforced with clan castle cake
+
+Session 5
+Giant bomb upgraded to level 4 for 750,000 gold
+Gem box
+Wall upgraded to level 6 in builder base for 240,000 gold
+
+Clash of Clans 2025.10.13 sessions
+Session 1
+Village raided, 100% destruction
+Wall upgraded to level 6 in builder base for 240,000 gold
+
+Session 2
+Village raided again, 100% destruction, not too much in resource losses
+Exchang 15,000 dark elixir for 2,295,000 elixir
+First Dark Elixir Drill upgraded to level 9 for 3,700,000 elixir
+Dark elixir production will be weakened for 60 hours (2 days, 12 hours)
+Wall upgraded to level 7 in builder base for 400,000 elixir
+
+Session 3
+Wanted to upgrade cannon to level 17, still can't afford it
+Upgraded Inferno Tower to level 2
+Resource collection
+
+Session 4
+Mainly just a collection session
+1 obstacle cleaned up in resource base
+
+Clash of Clans 2025.10.14 sessions
+Session 1
+Clock tower boost, and last clock tower potion used separately
+Wall upgraded to level 6 for 240,000 gold, 50 remain (12,000,000 more gold needed)
+Air bomb upgraded to level 6 for 800,000 gold
+Long session, extensive browsing and resource collection
+Frequent connection issues, as a Wi-Fi hot spot wasn't used
+
+Session 2
+15,000 dark elixir converted to 2,295,000 elixir using alchemist
+Second dark elixir drill upgraded to level 9 for 3,700,000 elixir
+Dark elixir production very strained
+
+Session 3
+Likely final session of the day, due to planned Internet outage (maintenance) tonight
+Leveled up to level 154, with an inferno tower finishing the upgrade process to level 2
+Collection only, couldn't afford to upgrade anything in main base or builder base
+
+Clash of Clans 2025.10.15 sessions
+Session 1
+Long session
+Wi-Fi hot spot
+Village raided twice, 72% 1 star and 100% 3 star attacks
+Significant resource loss
+Geared-up cannon upgraded to level 17 for 1,500,000 gold
+Extensive builder base battles, peaked at 4211 trophies, reached Titanium League I briefly
+Builder star jar used
+Several wall upgrades
+41 walls left to upgrade to level 6, 240,000 gold each, 9,840,000 gold total
+Mass collections, some potions converted to gems
+
+Session 2
+700 rock medals
+Mass resource conversion
+Third and final dark elixir drill upgraded to level 9 for 3,700,000 elixir
+All dark elixir production temporarily halted
+Giant bomb upgraded to level 5 for 900,000 gold
+Geared-up archer tower upgraded to level 16 for 1,600,000 gold
+All builders now busy
+
+Session 3
+Collection only
+
+Clash of Clans 2025.10.16 sessions
+Session 1
+Village attacked, 68% destruction, 1 star
+Trading rock medals
+Geared-up archer tower upgraded to level 17 for 1,800,000 gold
+Builder base wall upgrades
+39 more walls to upgrade to level 6, 240,000 gold each, 9,360,000 gold total
+Long session, browsing
+
+Session 2
+Waiting a few minutes for the alchemist to wake up
+15,000 dark elxiir converted to 2,295,000 gold
+Geared-up mortar upgraded to level 11 for 2,300,000 gold
+
+Session 3
+Forced update
+Village raided, 100% destruction, 3 stars, some resource losses, nonsensical player name
+Collection and quitting
+
+Clash of Clans 2025.10.17 sessions
+Session 1
+Collection
+Air bomb upgraded to level 6 for 800,000 gold
+First wall upgraded to level 13 for 1,500,000 elixir, 299 left (448,500,000 more gold/elixir needed)
+Builder base wall upgrades
+38 more walls to upgrade to level 6, 240,000 gold each, 9,120,000 gold total
+Frequent disconnections
+Selling some potions
+Back above 13,000 gems
+Clock tower boost
+
+Session 2
+Collection only
+
+Session 3
+Collection
+6,000 dark elixir converted to 918,000 gold
+Cannon upgraded to level 16 for 1,300,000 gold
+Gameplay starting to feel slow again
+
+Session 4
+Village raided, 72% attack, 2 stars, some resources lost
+Another geared-up mortar upgrade is needed, then all geared-up defenses will be max level for town hall level 12 standards
+Builder base wall upgrade, level 6 for 240,000 gold, 37 walls to go (will cost 8,880,000 more gold)
+Tree cleaned up
+Mostly collection
+
+Clash of Clans 2025.10.18 sessions
+Session 1
+Very long morning session
+Clock tower boost
+Excessive collection and browsing, relaxing, waking up
+Village raided 65% attack, 2 stars, many resources lost
+Clan request, getting ready for a clan castle cake
+Playing around, attacking my own village twice, couldn't get 50% or even 1 star on either attempt (dragon spam, then electrodragon spam)
+47% (dragons) 45% (electodragons)
+Builder base wall upgrades, level 7 fot 400,000 elixir, level 6 for 240,000 gold, 36 walls to go (will cost 8,640,000 more gold)
+
+Session 2
+Short mid-afternoon session
+Resource collection
+Waiting for the alchemist to wake up
+Was going to trade elixir for gold, but I had more dakr elixir now
+6,750 dark elxiir traded for 1,032,750 gold
+Archer tower upgraded to level 16 for 1,600,000 gold
+Browisng
+Obstacle cleaned up in builder base
+
+Session 3
+Collection only, no upgrades
+Attacking my own village, 260 barbarians, 36% destruction, 0 stars
+
+Clash of Clans 2025.10.19
+PART 1
+Session 1
+Collection
+Late morning session
+Builder base battles
+New trophy record: 4,239, staying in Titanium League I
+Many wall upgrades in builder base, 30 walls left to upgrade to level 6 (will cost 7,200,000 more gold)
+No building upgrades
+
+ADD
+Things I like about Clash of Clans
+
++ the new village attack artwork
+
+Things I don't like about Clash of Clans
+
++ the new league systemn (2025, October)
+!-->
+
+- I played every day this week, playing multiple times every day between 2025, October 13th and 2025, October 19th. 
+- On my 2025, October 13th sessions, my second session of the day saw resource collection only. On my 3rd session of the day, I upgraded my seventh gold mine to level 15 for 1,200,000 elixir, now having all of my gold mines maxed out for my town hall level (once the upgrade finishes) on my fourth session of the day, I traded 15,000 dark elixir fro 2,295,000 gold with the alchemist, and went to upgrade my seventh elixir collector to level 7 for 1,200,000 gold. Smilar to my gold mines, all iof my elixir collectors are now maxed out for my town hall level (once the upgrade finishes) I wanted to upgrade my geared-up archer tower to level 16, but I was short on 54,737 gold, so I upgraded my geared-up cannon to level 16 for 1,300,00 gold. I also reinforced my clan castle using a caln castle cake. On my fifth and final session of the day, I cleaned up a gem box, upgraded a giant bomb to level 4 for 750,000 gold, and upgraded a wall to level 6 in my builder base for 240,000 gold.
+- On my 2025, October 14th sessions, during my first session of the day, I used a clock tower boost, waited out the boost, then used my last clock tower potion. In my builder base, I upgraded a wall to level 6 for 240,000 gold, with 50 level 5 walls remaining, which will require 12,000,000 more gold to upgrade to level 6. I also upgraded an air bomb to level 6 for 800,000 gold. My first session of the day was a very long session, where I did extensive browsing and resource collection. There were frequent connection issues, asd a Wi-Fi hot spot wanm't used. During my second session of the day, I exchanged 15,000 dark elixir for 2,295,000 elixir using the alchemist, then upgraded my second dark elixir drill to level 9 for 3,700,000 elixir, with my dark elixir production now bein g very strained. During my third session of the day, I leveled up to level 154, as my inferno tower finished upgrading to level 2. I did collection only, as I couldn't afford to upgrade anything in my main base or my builder base. This was my last session of the day, as I couldn't play later tonight, due to Internet maintenance.
+- On my 2025, October 15th sessions, my first session of the day was a long one. I turned my Wi-Fi hot spot on. My village was raided twice since I last polayed, the first attack was a 72% 1 star attack, and the second attack was a 100% 3 star attack. It resxulted in significant resource losses, but I could still do upgrades. I upgraded my geared-up cannon to level 17 for 1,500,000 gold, which is the max level for town hall 12. I did extensive builder base battles, peaking at 4,211 trophies, and reaching Titamium League I briefly, before falling back to Titanium League II with 4,184 trophies. I used a builder star jar, and did several wall upgrades. 41 more walls are left to upgrade to level 6, at a cost of 240,000 gold each, 9,840,000 gold total. I did lot sof resojurce collection, also convering some potions to gems. Dufring my second session of the day, I received 700 rock medals, and was able to do mass resource conversion, and upgraded my third and final dark elixir drill to level 9 for 3,700,000 elixir, with all of my dark elixir production now temporarily halted. I upgraded a giant bomb to level 5 for 900,000 gold, and my geared-up archer tower to level 16 for 1,600,000 gold. All of my builders were now busy. During my third and final session of the day, I only did resource collection.
+- On my 2025, October 16th sessions, durfing my first session of the day, my village was attacked overnight, with a 68% 1 star attack. I traded more rock medals, and upgraded my geared-up archer tower to level 17 for 1,800,000 gold, which is now max level for town hall 12. I did more builder base wall upgrades, with 39 more walls left to upgrade to level 6, costing 240,000 gold each, and 9,360,000 gold total. I had a long session, browsing aorund. During my second session of the day, my village was raided, receiving 100% destruction in a 3 star attack, with some resource losses by a player with a nonsensical player name. I collected resources, then quit.
+- On my 2025, October 17th sessions, during my first session of the day, I did some collection, upgrading an air boimb to level 6 for 800,000 gold, along with my first wall to level 13 for 1,500,000 elixir, with 299 walls left to upgrade, which will require 448,500,000 more gold/elixir. It is currently not a priority. I also did some builder base wall upgrades. There are 38 more walls to upgrade to level 6, which will 240,000 gold each, and 9,120,000 gold total. I was frequently disconnected whole playing. I sold some potions, and went back above 13,000 gems again. I also used a clock tower boost. During my second session of the day, I did collection only. During my third session of the day, I did some collection, and exchanged 6,000 dark elixir for 918,000 gold, then upgraded my cannon to level 16 for 1,300,000 gold. Gameplay is starting to feel slow again.  During my fourth and fcinal session of the day, my village was raided once, receiving a 72% 2 star attack, with some resources lost. I now only have my geared-up mortar to upgrade, then all of my geared-up defenses will be max level for town hall level 12 standards. In my builder base, I cleaned up a tree, and upgraded a wall to level 6 for 240,000 gold. There are 37 walls to go, which will cost 8,880,000 more gold. I did mostly collection.
+- On my 2025, October 18th sessions, during my first session of the day, I had a very long morning session, using a clock tower boost, and doing excessive resource collection and browsing, as it is a relaxing way to wake up. My village was raided overnight, with a 65% 2 star attack, with many resources lost. I did a clan troop request, in preparation for the next clan castle cake. I played around, attacking my own village twice, unable to get 50% or even 1 star on ekither attempt. The all-dragon attempt got 47% destruction, while the all electro-dragon, plus 1 dragon attack got 45% I did further builder base wall upgrades, upgrading a wall to level 7 fot 400,000 elixir, and a wall to level 6 for 240,000 gold. There are now 36 walls to go, which will cost 8,640,000 more gold. During my second session of the day, I had a short mid-afternoon session, doing some resource collection, as I waited for the alchemist to wake up. I was going to trade elixir for gold, but I had more dark elixir now, so I traded 6,750 dark elixir for 1,032,750 gold. I then upgraded an archer tower tol level 16 for 1,600,000 gold, and browsed arolnd a bit, also cleaning up, also cleaning up an obstacle in the builder base. During my third and final session of the day, I did collection only, not doing any upgrades. I attacked my own village using 250 barbarians, resulting in 36% destruction, and 0 stars.
+- On my 2025, October 19th session, during my first session of the day, I did some collection, and had a late mormingsession. I did several builder base battles, and reached a new trophy record of 4,239, also staying in Titanium League I. I did many wall upgrades in my builder base, with only 30 walls left to upgrade to level 6, which will cost 7,200,000 more gold. I did not do any building upgrades.
+- I was attacked 6 times since I last played.
+- The game did function off of a Wi-Fi hot spot this week only on the first Sunday session, the other sessions did not use a hot spot.
+- The game required an update this week.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it, as I don't see it as worth it. I don't plan on upgrading the laboratory assistant either, as it seems pretty useless.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gem box available this week.
+- I eventually wrapped up and quit.
+- This was my forty-second weekly session of the year, and my third session for 2025, October. - 2025, Sunday, October 19th
+
+### 2025, Sunday, October 26th
+
+<!-- Notes 2025.10.26
+Clash of Clans 2025.10.19
+PART 1
+Session 1
+Collection
+Late morning session
+Builder base battles
+New trophy record: 4,239, staying in Titanium League I
+Many wall upgrades in builder base, 30 walls left to upgrade to level 6 (will cost 7,200,000 more gold)
+No building upgrades
+
+PART 2
+Session 2
+Short afternoon session
+10,200 dark elixir convertd to 1,560,600 gold
+Geared-up mortar upgraded to level 12 for 2,400,000 gold
+Collection
+First Gold storage building upgraded to level 13 for 1,800,000 elixir, not for capacity, but for more health points, makung it harder to loot gold without destroying more of the structure/more of my base
+
+Session 3
+Nighttime session
+Unable to play, game under maintenance (later found to be caused by an Amazon Web Services (AWS) outage)
+
+Clash of Clans 2025.10.20
+Session 1
+Morning session
+Village surprisingly not raided
+Deranked from Archer (8) to No rank (0)
+Seeking air mine upgraded to level 3 for 1,200,000 gold
+Clan castle cake, clamn castle restocked
+Builder base clock tower boost
+Mass collection
+Walls upgraded in builder base, 28 walls left to upgrade to level 6 (will cost 6,720,000 more gold)
+Continued browsing around
+
+Session 2
+Resource collection
+11,400 dark elixir converted to 1,744,200 gold via alchemist
+Third archer tower upgraded to level 16 for 1,600,000 gold
+Tree cleaned up in builder base
+
+Session 3
+Resource collection
+Gold storage finished upgrading to level 13, 11,000,000 total capacity, 400+ hitpoints for resource storage
+Mortar close to finished with upgrade to level 12
+Collection only
+Saving up resources
+
+Clash of Clans 2025.10.21
+Session 1
+3 upgrades finish overnight (archer tower, seeking air mine, mortar)
+Village attacked once, 67% damage, 1 star
+Connection issues, not just regular connection warnings, followed by a disconnect. Wi-Fi briefly went out on my device only
+Clock tower boost
+Short collection session
+Was going to save up elixir, decided to upgrade a second gold storage to level 13 for 1,800,000 elixir
+
+Session 2
+Wall upgrade in builder base
+26 walls left to upgrade to level 6, 240,000 gold each, will cost 6,240,000 more gold
+Resource conversion with alchemist: 11,700 dark elxiir for 1,790,000 gold
+Fourth archer tower upgraded to level 16 for 1,600,000 gold
+Fifth archer tower upgraded to level 16 for 1,600,000 gold
+
+Session 3
+Collection session
+Wall upgraded to level 7 in builder base for 400,000 elixir
+
+Clash of Clans 2025.10.22
+Session 1
+Excessive morning session
+Mass collection
+Wi-Fi hot sporrt
+Village atacked overnight, 100% damage, 3 star attack, some resources lost
+Builder base battles
+Star jar used
+Some potions sold for gems
+13,100 gem mark
+Ended with 4,284 trophies, series of mostly poor attacks, but good defenses
+Wall upgrades
+19 walls left to upgrade tom level 6 for 240,000 gold each. Will cost 4,560,000 more gold
+
+Session 2
+Gold storage finished upgrading to level 13, 12,000,000 total capacity
+Village attacked, 70% damage, 1 star attack
+Collection session
+Battle replay
+
+Session 3
+Collection
+10,050 dark elixir traded for 1,537,650 gold using alchemist
+Sixth archer tower upgraded to level 16 for 1,600,000 gold
+Brief browsing
+
+Session 4
+Village attacked, 100% destruction, 3 stars
+Spell used caused me to gain a lot of cosmic shards
+Collection only, except for builder base
+Builder base wall upgraded to level 6 for 240,000 gold, 17 walls left to upgrade to level 6 (will cost 4,080,000 more gold)
+
+Clash of Clans 2025.10.23
+Session 1
+Morning session, excessively long
+2 archer towers finish upgrading to level 16
+Clock tower boost
+Builder base wall upgraded to level 6 for 240,000 gold, 16 walls left to upgrade to level 6 (will cost 3,840,000 more gold)
+Decided not to save up more gold, and to instead upgrade another air bomb to level 6 for 800,000 gold, main village
+Browsing a lot
+
+Session 2
+Village attacked roughly 8 minutes after I logged back on
+100% 3 star attack, lost resouruces
+Some collection
+Gem box
+Trading 8,400 dark elixir for 1,285,200 gold
+Seventh and final archer tower upgraded to level 16 for 1,600,000 gold
+1,000,000 elixir from challenge rewards
+Decided not to upgrade a gold storagem, instead upgraded my miner troop to level 3 for 2,600,000 elixir
+Browsing around, watching the attack replay
+
+Session 3
+Air bomb finished upgrading to level 6
+Collection only
+
+Clash of Clans 2025.10.24
+Session 1
+Village raided, 72%, 2 star attack
+Some resources lost
+Collelction
+Builder base wall upgrades
+Builder base wall upgraded to level 6 for 240,000 gold, 15 walls left to upgrade to level 6 (will cost 3,600,000 more gold)
+Clock tower boost
+Connection issues, no hot spot
+Research potion
+Browsing around
+Air bomb upgraded to level 6 for 800,000 gold
+
+Session 2
+Starting 1 hour after the end of the last session
+Resource collection
+Trading cosmic rock medals for elixir, not enought o upgrade gold storage
+Browsing
+
+Session 3
+Afternoon session
+More rock medal conversion
+15,000 dark elixir converted to 2,295,000 gold
+Inferno tower upgraded to level 3 for 2,400,000 gold
+Builder base wall upgraded to level 6 for 240,000 gold, 14 walls left to upgrade to level 6 (will cost 3,360,000 more gold)
+Further conversion
+Hidden tesla upgraded to level 6 for 1,200,000 gold
+Another air bomb upgraded to level 6 for 800,000 gold
+
+Session 4
+Brief late afternoon session
+Collection
+Third gold storage upgraded to level 13 for 1,800,000 elixir
+Miner upgraded to level 3, still another upgrade to go fior curreent laboratory level
+
+Session 5
+Nighttime session
+Air bomb finished upgrading to level 6
+Collection session
+
+Clash of Clans 2025.10.25
+Session 1
+Morning session
+Yet another air bomb finished upgrading to level 6
+Village attacked, 100% 3 star attack, resource loss
+Gem box
+Builder base
+Clock tower boost
+Builder base wall upgraded to level 6 for 240,000 gold, 13 walls left to upgrade to level 6 (will cost 3,120,000 more gold)
+Browsing around
+Not enough gold for an upgrade in main village
+
+Session 2
+Short late morning session
+Collection
+Still not enough for an ugprade
+Browsing around
+
+Session 3
+Eatly afternoon session
+Collection
+Final air bomb upgraded to level 6 for 800,000 gold
+Browsing around
+
+Session 4
+Afternoon session
+Collection
+Waiting for upgrade to finish
+Hidden tesla finished upgrading to level 6, with less than 5 minutes left on shield time
+Very close to leveling up to level 155
+Converting 9,450 dark elixir for 1,445,850 gold using alchemist
+Hidden tesla upgraded to level 7 for 1,400,000 gold
+Browsing around
+
+Session 5
+Nighttime session
+Village raided once, 37% 0 star attack
+Builder base wall upgraded to level 6 for 240,000 gold, 12 walls left to upgrade to level 6 (will cost 3,120,000 more gold)
+Mainly collection
+
+LABEL: Clash-obsessed
+
+Clash of Clans 2025.10.26
+PART 1
+Session 1
+Weekend session
+Mid morning
+Village raided twice, 21% 0 star attack, and a 100% 3 star attack
+Builder base battles
+Doing poorly, still managed to stay in Titanium League I
+Achievement for destroying 2,000 builder halls
+Ending with 4,228 trophies
+5 Builder base walls upgraded to level 6 for 240,000 gold, 7 walls left to upgrade to level 6 (will cost 1,680,000 more gold)
+!-->
+
+- I played every day this week, playing multiple times every day between 2025, October 19th and 2025, October 26th. 
+- On my 2025, October 19th sessions, my second session of the day was a short afternoon session. I had a collection session, converting 10,200 dark elixir for 1,560,600 gold, then I upgraded my geared up mortar to level 12 for 2,400,000 gold. It is now max level for town hall 12. I also began to upgrade my first gold storage building to level 13 for 1,800,000 elixir, not for the capacity, but for more health points, making it harder to loot gold without destroying more of the structure/more of my base. My third session of the day didn;t happen, as the game was under maintenance, which I later found was caused by an Amazon Web Services (AWS) outage. I didn't know that SUPERCELL games depended on Amazon.
+- On my 2025, October 20th sessions, during my first session of the day, I played in the morning. Surprisingly, my village was not raided since I last played, although I was derankedx from Aarcher (8) to No rank (0) I began to upgrade a seeking air mine to level 3 for 1,200,000 gold, and used a Clan Castle Cake, and restocked my Clnan Castle. I then used the clock tower boost in my builder  base, and browsed around a lot, doing mass resource collection, and upgrading walls in my builder base. There are 28 walls left to upgrade to level 6, which will cost 6,720,000 more gold. During my second session of the day, I did resource collection, then converted 11,400 dark elixir to 1,744,200 gold via the alchemist, before upgrading a third archer tower to level 16 for 1,600,000 gold, and also cleaned up a tree in my builder base. During my third session of the day, I did resource collection. My  gold storage finished upgrading to level 13, now reaching 11,000,000 total capacity, with 400+ total hitpoints for resource buildings. My geared-up mortarwas close to being finished with its upgradce to level 12, I mainly did colection, and saved up resources.
+- On my 2025, October 21st session, 3 upgrades finished overnight (archer tower level 16, seeking air mine level 3, and mortar level 12) my village was attacked once, and sustainend 67% damage in a 1 star attack. There were connection issues, not just regular connection warnings, followed by a disconnect. but the Wi-Fi briefly went out on my PDA only. I used a clock tower boost, and had a short collection session. I was going to save up elixir, but decided to upgrade a second gold storage to level 13 for 1,800,000 elixir. During my second session of the day, I did some wall upgrades in my builder base. There are 26 walls left to upgrade to level 6, which cost 240,000 gold each, and will cost 6,240,000 more gold. I did some resource conversion with the alchemist, converting 11,700 dark elixir for 1,790,000 gold. I then upgraded a fourth archer tower to level 16 for 1,600,000 gold, along with a fifth archer tower to level 15 for the same price. During my third session of the day, I mainly did collection, also upgrading a wall in my builder base to level 7 for 400,000 elixir.
+- On my 2025, October 22nd sessions, my first session was an excessive length morning session. I did mass collection, playing using a Wi-Fi hot spot. My village was attacked overnight, sustaining 100% damage in a 3 star attack, with some resouruces lost. I did several battles in the builder base, and also used a star jar, selling some potions for gems. I reached the 13,100 gem mark, and ended with 4,284 trophies in the builder base.  I had a series of mostly poor attacks, with good defenses. I then did some wall upgrades. There are 19 walls left to upgrade to level 6 for 240,000 gold each, which will cost 4,560,000 more gold. During my second session of the day, my second gold storage finished upgrading to level 13, with total gold storage capacity now at 12,000,000. My village was attacked once, receiving 70% damage in a 1 star attack. This was mainly a collection session, I also watched a battle replay. During my thikrd session of the day, I traded 10,050 dark elixir for 1,537,650 gold using the alchemist, upgraded a sixth archer tower to level 16 for 1,600,000 gold, and browsed around briefly. During my fourth session of the day, my village was attacked again, sustaing 100% damage in a 3 star attack. A spell used by the attacker left behind a lot of debris, which let me gain a lot of cosmic shards. I did collection only, except for the builder abse, where I upgraded a wall  to level 6 for 240,000 gold. There are 17 more walls to upgrade to level 6, which will cost 4,080,000 more gold.
+- On my 2025, October 23rd sessions, during my first session of the day, I had an excessivly long morning session, browsing around a lot, and collecting resources. 2 archer towers had finished upgrading to level 16. I used a clock tower boost in my builder base, then upgraded a wall to level 6 for 240,000 gold. There are 16 more walls to upgrade to level 6, which will cost 3,840,000 more gold. I decided not to save e up more gold, and to instead upgrade another air bomb to level 6 for 800,000 gold in my main village. During my second session of the day, my village was raided roughly 8 minutes before I logged back on, it was a 100% 3 star attack, and I lost resources that I was trying to save up. I did some collection, and cleaned up a gem  box, before converting 8,400 dark elixir for 1,25,200 gold  using the alchemist. I then upgraded my seventh and final archer tower to level 16 for 1,600,000 gold. I received 1,000,000 elixir from a challenge reward, and decided not to upgrade a gold storage next, instead upgrading my miner troop to level 3 for 2,600,000 elixir. I browsed around, and wathced the attack replay. Every attack replay I have seen so far under town hall 12 has been an air attack (although I haven't watched every replay) during my third session of the day,  my air bomb finished upgradinf to level 6, and I only did resource collection.
+- On my 2025, October 24th sessions, during my first session of the day, I found my village had been raided overnight, sustaining 72% damage in a 2 star attack.I lost somem resources. During this session, I did collection, along with builder base wall upgrades. There are 15 walls left to upgrade to level 6 for 240,000 gold each, which will cost 3,600,000 more gold total. I used a clock tower boost, and had some connection issues, due to how I didn't utilize a Wi-Fi hot spot. I used a research potion, browsed arlound,then upgraded an air bomb to lelvel 6 for 800,000 gold. During my second session of the day, the session was started 60 minutes since the end of the last session. I did some resource collection, and traded cosmic rock medals for elixir, and didn't have enough to upgrade a gold storage building.  I browsed around and quit. During my third session of the day, I had an afternoon session, doing more rock medal conversion, and also trading 15,000 dark elixir for 2,295,000 gold. With these resources, I upgraded an inferno tower to level 3 for 2,400,000 gold. I also upgraded another wall in my builder base to level 6 for 240,000 gold, with 14 walls left to upgrade to level 6, which will cost 3,360,000 more gold) I did further rock medal conversion, which allowed me to upgrade a hidden tesla to level 6 for 1,200,000 gold, along with another air bomb to level 6 for 800,000 gold. During my fourth session of the day, I had a brief late afternoon session, doing resource collection, and upgrading a third gold storage building to level 13 for 1,800,000 elixir. My miner troop finished upgrading to level 3, and I found that there was still another upgrade to go for my current laboratory level. During my fifth session of the day, I had a nighttime session, only doing collection. My air bomb finished upgrading to level 6.
+- On my 2025, October 25th sessions, during my first session of the day, I played in the morning. Yet another air bomb finished upgrading to level 6. My village was also attacked again overnight, receiving 100% damage in a 3 star attack, with some resources lost. I cleaned up my second gem box of the week, then headed over to my builder base, where I used a clock tower boost, and also upgraded another wall to level 6 for 240,000 gold, 13 more walls are left to upgrade to level 6, which will cost 3,120,000 more gold. I browsed around a bit, but didn't have enough gold for an upgrade in my main village. During my second session of the day, I had a short late morning sesson, doing some collection, and browsing around a bit,  but still not having enough gold to do an upgrade. During my third session of the day, I had an early afternoon session, collecting resources, browsing around a bit, and upgrading a final air bomb to level 6 for 800,000 gold. During my fourth session of the day,  I played in the afternoon, doing collection, and waiting for an upgrade to finish. My hidden tesla finished upgrading to level 6, with less than 5 minutes left on the shield time. I was very close to leveling up to level 155. I converted 9,450 dark elixir for 1,445,850 gold using the alchemist, then upgraded my hidden tesla to level 7 for 1,400,000 gold, before browsing around for a bit. During my fifth session of the day, I played during nighttime. My village was raided once in a 0 star, 37% attack. I also upgraded a wall in my builder base to level 6 for 240,000 gold, with 12 walls left to upgrade to level 6, which will cost 3,120,000 more gold. This was mainly a collection session.
+- On my 2025, October 26th sessions, during my first session of the day, I had my usual weekly weekend session, playing in the mid morning, and using a Wi-Fi hot spot. My village was raided twice, receiving 21% damage in a 0 star attack, and 100% damage in a 3 star attack. I did builder base battles, doing very poorly, but still managing to stay in Titanum League I. I received  an achievement for destroying 2,000 builder halls, and ended with 4,228 trophies. I upgraded 5 walls in my builder base to level 6 for 240,000 gold, 1,200,000 gold total. There are 7 walls left to upgrade to level 6, which will cost 1,680,000 more gold. There were severe edge screen, screenshot failure, and device posture issues during gameplay today.
+- I was attacked many times since I last played.
+- The game did function off of a Wi-Fi hot spot this week only on the first Wednesday session, and the first Sunday session, the other sessions did not use a hot spot.
+- The game did not require an update this week.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it, as I don't see it as worth it. I don't plan on upgrading the laboratory assistant either, as it seems pretty useless.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There were 2 gem boxes available this week.
+- I eventually wrapped up and quit.
+- This was my forty-third weekly session of the year, and my fourth and final session for 2025, October. - 2025, Sunday, October 26th
+
+### 2025, Sunday, November 2nd
+
+<!-- Notes 2025.11.02
+Clash of Clans 2025.10.26
+PART 1
+Session 1
+Weekend session
+Mid morning
+Village raided twice, 21% 0 star attack, and a 100% 3 star attack
+Builder base battles
+Doing poorly, still managed to stay in Titanium League I
+Achievement for destroying 2,000 builder halls
+Ending with 4,228 trophies
+5 Builder base walls upgraded to level 6 for 240,000 gold, 7 walls left to upgrade to level 6 (will cost 1,680,000 more gold)
+
+PART 2
+Session 2
+Collection
+9,450 dark elixir converted to 1,445,850 gold
+Mortar upgraded to level 11 for 2,300,000 gold
+Was going to upgrade archer tower to level 17, but decided to do this in a crucial area first (most ground attacks come from this direction)
+Forgot to mention that I leveled up to level 155 during my nighttime session on 2025, October 25th
+
+Session 3
+Nighttime session
+Hidden tesla finished upgrading to level 7
+89% 3 star attack, significant resource loss
+Collection-
+Not able to do a gold storage upgrade now
+1 Builder base wall upgraded to level 6 for 240,000 gold, 6 walls left to upgrade to level 6 (will cost 1,440,000 more gold)
+Touring bases
+Browsing around
+
+Session 4
+Late nighttime session
+Mass collection
+Browsing around
+Fourth gold storage building upgraded to level 13 for 1,800,000 elixir
+
+Clash of Clans 2025.10.27
+Session 1
+Long morning session
+Village raided, 100% damage, 3 star attack
+My first revenge attack under the new revenge system
+Player had resource storages and collectors, along with his town hall all undefended
+66% 2 star attack
+Got all of my resources back, plus some
+Spring trap upgraded to level 5 for 1,000,000 gold
+Massive base rearragnement
+Clan castle cake
+Mighty morsel
+Collection, browsing around
+Clock tower boost
+1 Builder base wall upgraded to level 6 for 240,000 gold, 5 walls left to upgrade to level 6 (will cost 1,200,000 more gold)
+
+Session 2
+Brief afternoon session
+Village raided, 71% 2 star attack
+10,650 dark elixir upgded to level 2 for 1,629,450 gold
+Second archer tower upgraded to level 17 for 1,800,000 gold
+Browsing around
+Attack replay
+Collection, browsing around
+
+Session 3
+Short nighttime session
+Mortar finished upgrading to level 11
+Spring trap finished upgradinf to level 6
+Collection only
+
+Clash of Clans 2025.10.28
+Session 1
+Fourth gold storage finished upgrading to level 13
+Archer tower finished upgrading to level 17
+Village raided overngith, 67% 1 star attack, some resources lost
+Collection session
+1 Builder base wall upgraded to level 6 for 240,000 gold, 4 walls left to upgrade to level 6 (will cost 960,000 more gold)
+Browsing around
+Connection issue caused me to quit
+
+Session 2
+Late morning session
+Collection
+Waiting for alchemist to be ready
+Attack replay
+11,700 darkt elixir converted to 1,790,100 gold
+Third archer tower upgraded to level 17 for 1,800,000 gold
+Waiting around, collecting
+1 Builder base wall upgraded to level 6 for 240,000 gold, 3 walls left to upgrade to level 6 (will cost 720,000 more gold)
+Spring trap upgraded to level 6 for 1,000,000 gold
+
+Session 3
+Mid nighttime session
+Collection
+Village surprisingly not attacked since I last played
+Not enough resources in main village for an upgrade
+Mass builder base battles, no clock tower boost
+1,000,000 builder gold awarded for completion of a quest
+Finished upgrading all walls in builder base to level 6
+Did poorly in battle, dropped out of Titaniumn League I, back into Titanium League II, just 1 trophy off (4.199 trophies)
+2 spring traps upgraded to level 5 for 500,000 gold, didn't realize that means I can't upgrade any walls until these upgrades are done
+112 more walls to upgeade to level 7 for 400,000 elixir (will cost 44,800,000 more elixir)
+
+Clash of Clans 2025.10.29
+Session 1
+Early morning session to help wake up, was going to skip
+86% 2 star attack on my village, resources lost
+Revenge attack on the player
+Was originally just trying to get my resources back
+Made several errors, but still destroyed 97% of the base in a 2 star attack, gaining all of my resources back (the exact amount)
+Cosmic medal conversion
+Shovel of obstacles
+Battle replay
+
+Session 2
+Early afternoon session
+Collection
+Dark elixir conversion with remaining medals
+Didn't want to forget to convert resources
+15,000 dark elixir converted to 2,295,000 gold
+Fourth archer tower upgraded to level 17 for 1,800,000 gold
+Browsing, collectiong resources
+Hidden tesla upgraded to level 8 for 1,600,000 gold
+
+Session 3
+Mid nighttime session
+Collection
+Anothner Miner troop upgrade available
+Miner troop upgraded to level 4 for 3,000,000 elixir
+
+Clash of Clans 2025.10.30
+Session 1
+Long mid morning session
+Update required to play
+Village attacked, 73% 2 star attack
+Collection
+Clock tower boost in builder base
+Revenge attack
+Mainly going for resources, managed to pull off a 3 star 100% attack
+Clan castle star bonus
+Cosmic rock rewards, barcher, mighty morsel 2x
+Spring trap upgraded to level 6 for 1,000,000 gold
+Saving up dark elixir
+Playing with super troops: super miner demo
+Connection issue, connection completely lost temporarily on PDA only
+Waiting for alchemist
+1,080,000 elixir converted into 7,344 dark elixir
+
+Session 2
+Mid nighttime session
+Collection
+Spring trap finished upgrading to level 6
+Waiting around, resource collection
+Another spring trap upgraded to level 6 for 1,000,000 gold
+
+Session 3
+Late nighttime session (close to midmight)
+More collection
+Collection only
+Quit, and went to bed
+
+Clash of Clans 2025.10.31
+Session 1
+Mid morning session
+Hidden tesla finished upgrading to level 8
+Village attacked, 100% 3 star attack
+Collection
+Clock tower boost
+Revenge attack, lots of resources
+52% 1 star attack
+Yet another spring trap upgraded to level 6 for 1,000,000 gold
+Achievement for destroying 10 inferno towers
+Plenty of elixir
+15,000 dark elixir converted to 2,295,000 gold
+First wizard tower upgraded to level 11 for 2,500,000 gold
+850 shiny ore from cosmic rock event
+Collection, browsing around
+Watching attack replay
+Connection issues
+Clock tower boost used up
+Checking multiplayer
+Forced to rejoin Archer League 8
+
+Session 2
+Late morning session
+Spring trap finished upgrading to level 6
+Collection only
+
+Session 3
+Mid afternoon session
+Village attacked, 100% 3 star attack
+Collection
+Revenge attack
+Plenty of dark elixir
+53% 1 star attack
+Quests completed, 2 million gold gained
+Browsing around, collection
+
+Session 4
+Mid afternoon session
+Came back 18 minutes after previous session
+Collection
+Second wizard tower upgraded to level 11 for 2,500,000 gold
+
+Session 5
+Mid nighttime session
+Another spring trap finished upgrading to level 6
+Collection only
+2 spring traps upgraded to level 5 for 500,000 gold, in builder base
+
+Clash of Clans 2025.11.01
+Session 1
+Late morning session
+End of season rewards
+End of Cosmic Rock event
+End of clash event starts
+Hammer jam starts, upgrades cheaper and faster, production speed and capacity doubled
+Village attacked, 100% 3 star attack by high level town hall 13 player
+Collection
+Lava hound troop upgraded to level 4 for 21,250 dark elixir
+Spent 50 gems to be able to do a second laborastory upgrade
+Ice golem troop upgraded to level 3 for 21,250 dark elixir
+Third wizard tower upgraded to level 11 for 1,250,000 gold
+Fourth wizard tower upgraded to level 11 for 1,250,000 gold
+Barracks upgraded to level 14 for 3,500,000 elixir
+Archer Queen upgraded to level 43 for 32,000 dark elixir
+Quest rewards, some potions, 500 capital gold
+Browsing around
+Failed revenge attack, 40% 0 star attack, but some resources gained
+Alchemist: converting 10,200 dark elixir for 1,560,600 elixir
+Browsing around, attack replay
+
+Session 2
+Mid nighttime session
+2 wizard towers finish upgrading to level 11
+Village attack, 49% 1 star attack
+Revenge attack, 54% 1 star attack, resources gained
+Dark barracks upgraded to level 9 for 3,600,000 elixir
+Browsing around, collection
+Fifth and final wizard tower upgraded to level 11 for 1,250,000 gold
+Quest reward: builder star jar
+
+Clash of Clans 2025.11.02
+PART 1
+Session 1
+Weekend session
+2 more wizard towers finish upgrading to level 11
+Leveled up to level 156
+Collection
+Village attacked, 21% 1 star attack, notable resources lost for this small amount of destruction
+Mortar upgraded to level 12 for 1,200,000 gold
+Alchemist: 15,000 dark elixir converted into 2,295,000 gold
+Connection issues, even with hot spot
+Went away after reloading
+Very brief connection issue, no further connection issues
+Bomb tower upgraded to level 7 for 2,000,000 gold
+Clock tower boost
+Lots of builder base battles
+Star jar used
+Ended with 4,303 trophies, back in Titanium League I
+Gem box cleaned up
+Extensive browsing, before quitting
+!-->
+
+- I played every day this week, playing multiple times every day between 2025, October 27th and 2025, Novemner 2nd. 
+- On my 2025, October 26th sessions, my second session of the day was a short collection session. I converted 9,450 dark elixir into 1,445,850 gold, and upgraded a mortar to level 11 for 2,300,000 gold. I was going to upgrade archer tower to level 17, but decided to do this mortar upgrade in a crucial area first (most ground attacks come from this direction) I also forgot to mention that I leveled up to level 155 during my nighttime session on 2025, October 25th. My third session of the day was a nighttimem session.My hidden tesla finished upgrading to level 7, while my village was attacked, sustaining 89% damage in a 3 statr attack, with significanmt resojurce loss. I did some collection, and wasn't able to do a gold storage upgrade now. In my builder base, I upgraded 1 wall segment to level 6 for 240,000 gold, there are now only 6 walls left to upgrade to level 6, which will cost 1,440,000 more gold. I toured bases, browsed around, and quit. During my fourth session of the day, I had a late nighttime session, doing mass collection and browsing around, before upgrading my fourth and final gold storage building upgraded to level 13 for 1,800,000 elixir
+- On my 2025, October 27th sessions, my first session of the day was a long morning sesSion. My village was raided, sustaining 100% damage in a 3 star attack. I conducted my first revenge attack under the new revenge system, as my attacker had resource storages and collectors, along with his town hall all undefended. I conducted a 66% 2 star attack, and gained all of my resources back, plus some extra resources,. I then upgraded a spring trap to level 5 for 1,000,000 gold, did massive rearrangements to my base, used a clan castle cake, and a mighty morsel, as I continued to do collection and browse around. I later used a clock tower boost, and also upgraded 1 builder base wall upgraded to level 6 for 240,000 gold, with 5 walls left to upgrade to level 6, which will cost 1,200,000 more gold. My second session of the day wasa brief afternoon session. My village was raided, sustaining 71%T damage in a 2 star attack. I didn't get revenge this time, and continued gameplay normally. I converted 10,650 dark elixir for 1,629,450 gold, then upgraded a second archer tower upgraded to level 17 for 1,800,000 gold, before browsing around, watching an attack replay, and waiting around. My third session of the day was a short nighttime session. My mortar finished upgrading to level 11, and my spring trap finished upgrading to level 6. I only did collection in this session.
+- On my 2025, October 28th sessions, my first session of the day was a mid morning session. My fourth gold storage building finished upgrading to level 3, and my Archer tower finished upgrading to level 17. My village was raided overnight, sustaining 67% damage in a 1 star attack, with some resources lost. I only did collection, also upgrading a builder base wallto level 6 for 240,000 gold, with only 4 walls left to upgrade to level 6, which will cost 960,000 more gold. I browsed around,  before connection issues caused me to quit. My second session of the day was a later morning session. I did some collection, and waited around for a bit for the alchemist to wake up, watchiung an attack replay in this time. I then upgraded a third archer tower upgraded to level 17 for 1,800,000 gold, then waiting around, and did resource collection. I also upgraded another builder base wall upgraded to level 6 for 240,000 gold, with only 3 walls left to upgrade to level 6, which will cost 720,000 more gold. Finally, I upgraded another spring trap to level 6 for 1,000,000 gold. My third session of the day was a mid nighttime session, where I used a Wi-Fi hot spot. I did collection, and my village surprisingly was not attacked since I last played. I still didn't have enough resources in main village for an upgrade. I went and did mass builder base battles without a clock tower boost, as I didn't want to play too long tomorrow morning. During these attacks, I was awarded 1,000,000 builder gold for completing a quest, and was able to finish upgrading the last 3 walls in my builder base to level 6 for 240,000 gold each, 720,000 gold total. I did poorly in battle, dropped out of Titaniun League I, back into Titanium League II, being just 1 trophy off, ending with 4,199 trophies. I then upgraded 2 spring traps upgraded to level 5 for 500,000 gold, didn't realize that means I can't upgrade any walls until these upgrades are done. There are 112 more walls to upgrade to level 7 for 400,000 elixir, which will cost 44,800,000 more elixir.
+- On my 2025, October 29th sessions, my first session of the day was an early morning session, as I was having a hard time wakling up and was originally going to skip long-term gameplay this morning, so that I could get caught up on work. My village received 86% damage in a 2 star attack, with some resources lost. I did a revenge attack on the player. I was originally going to just get my resources back, but despite several tactical errors, I still destroyed 97% of the base in a 2 star attack, gaining all of my resources back (the exact amount) I did some cosmic medal conversion, and bought a shovel of obstacles, which I used to make a pumpkin movable. I also watched an attack replay. My second session of the day was an early afternoon session. I did collection, along with dark elixir conversion with my remaining cosmic rock medals, as I didn't want to forget to convert these medals. I then converted 15,000 dark elixir for 2,295,000 gold, and upgraded a fourth archer tower to level 17 for 1,800,000 gold. I continued to browse around and collect resources, and collect resources, and was also able to upgrade a hidden tesla to level 8 for 1,600,000 gold. My third session of the day was a mid nighttime session. I did some collection. Another Miner troop upgrade was available, so I upgraded my Miner troop to level 4 for 3,000,000 elixir.
+- On my 2025, October 30th sessions, my first session of the day was a long morning session. An update was required top play today. Overnight, my village sustained 73% damage in a 2 star attack. I did some collection, and used a clock tower boost in my builder base. I went and did a revenge attack., I was mainly going for resources, but managed to pull off a 3 star 100% attack. I received a clan castle star bonus, and received more Cosmic Rock event rewards, unlocking the barcer troop, and gained 2 more mighty morsels. I upgraded a spring trap to level 6 for 1,000,000 giold. I was saving up dark elixir to upgrade my lava hound troop. I played around with super troops, demoing the super miner troop. As I continued to wait for the alchemist, I had another connection issue, with my connection being entirely lost temporarily on my PDA only. I continued to wait for the alchemist to wake up, then converted 1,080,000 elixir into 7,344 dark elixir. My second session of the day was a mid nighttime session. A spring trap had finished upgpading to level 6. I did lots of collection, before upgrading another spring trap to level 6 for 1,000,000 gold. My third session of the day was a late nighttime session, close to midnight. I did collection only, then quit, and went to bed.
+- On my 2025, October 31st sessions, my first session of the day was a mid morning session. My hidden tesla had finished upgrading to level 8. Meanwhile, my village was attacked overnight, sustaining 100% damage in a 3 star attack. I did some collection, used a clock tower boost, then did a revenge attack to gain lots of resources, dealing 52% damage in a 1 star attack. I then weent and upgpraded yet another spring trap to level 6 for 1,000,000 gold. I earned 100 gems, and 50 XP for destroying 10 inferno towers. I had plenty of dark elixir left over, so I converted 15,000 dark elixir for 2,295,000 gold, before upgrading my first wizard tower to level 11 for 2,500,000 gold. I collected 850 shiny ore from the cosmic rock event, then continued to do collection, browsing around, watching an attack replay, and dealing with connection issues. The clock tower boost eventually ended. I went to check the multiplayer option, and was forced by the game to rejoin Archer League 8. My second session of the day was a late morning session. A spring trap had finished upgrading to level 6. I did collection only, as I couldn't afford any of the upgrades I wanted. My third session of the day was a mid afternoon session. My village had sustained 100% damage in a 3 star attack. I did some resource collection, before conducting a revenge attack, where I got plenty of dark elixir, and also destroyed 53% of the enemy base, in a 1 star attack. A quest had been completed, and I gained 2 million gold. I browsed aroynd briefly, and did collection, before quitting. My fourth session of the day was also a mid afternoon session. I came back 18 minutes after the previous session, and did some collection, before upgrading a second wizard tower to level 11 for 2,500,000 gold. My fifth session of the day was a mid nighttime session. Another spring trap had finished upgrading to level 6. I did collection only in my main viillage, but upgraded 2 spring traps to level 5 for 500,000 gold in my builder base.
+- On my 2025, November 1st sessions, my first session of the day was a late morning session. I received end of season rewards. The Cosmic Rock event had ended, and the End of Clash event started. The Hammer Jam event also started, with upgrades now being cheaper and faster, and resource production speed and capacity being doubled. Overnight, my village was attacked in a 100% destructuion, 3 star attack by a high level town hall 13 player (almost all buildings being max level for town hall 13) I did some collection, and upgraded my Lava Hound troop to level 4 for 21,250 dark elixir. I then spent 50 gems on a laboratory work for hire assistant, so that I could do a second simultaneous laboratory upgrade, upgrading my Ice Golem troop to level 3 for 21,250 dark elixir. I also upraded a third wizard tower to level 11 for 1,250,000 gold, and a fourth wizard tower to level 11 for 1,250,000 gold, along with my barracks to level 14 for 3,500,000 elixir, and my Archer Queen to level 43 for 32,000 dark elixir. I received some quests rewards, consisting of 2 potions, and 500 capital gold. I browsed around, then did a failed revenge attack, destroying 40% of the enemy village  in a 0 star attack, but gaiend some resources. After this, I used the alchemist to convert 10,200 dark elixir into 1,560,600 elixir, before continuing to browse around, also watching an attack replay. My second session of the day was a mid nighttime session. 2 wizard towers had finished upgrading to level 11, while my village was attacked in a 49% 1 star attack. In a revenge attack, I destroyed 54% of the village in 1 star attack, and gained resources. I then upgraded my dark barracks to level 9 for 3,600,000 elixir, before continuing to browse around and do resource collection. After this, I upgraded my fifth and final wizard tower to level 11 for 1,250,000 gold. I received a builder star jar in a quest.
+- On my 2025, November 2nd sessions, my first session of the day was a mid morning session, and a weekend session, where I used a Wi-Fi hot spot. 2 more wizard towers finished upgrading to level 11, and I also leveled up to level 156. I did some collection. My village had been attacked overnight, sustaining 21% damage in a 1 star attack, with notable resources lost for this small amount of destruction. I upgraded a mortar to level 12 for 1,200,000 gold, before converting 15,000 dark elixir into 2,295,000 gold using the alchemist. There were connection issues, even with the Wi-Fi hot spot, which went away after reloading. Later on, there was a connection issue that lasted about half of a second, warning me of a weak signal very briefly. There weren't any further connection issues. I upgraded a bomb tower to level 7 for 2,000,000 gold, and also used a clock tower boost, as I did lots of builder base battles, also using a star jar. I ended with 4,303 trophies, and was now back in Titanium League I. I cleaned up a g em box, and did extensive browsing, before eventually quitting.
+- I was attacked many times since I last played.
+- The game did function off of a Wi-Fi hot spot this week only on the first Wednesday session, and the first Sunday session, the other sessions did not use a hot spot.
+- The game did require an update this week.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it, as I don't see it as worth it. I don't plan on upgrading the laboratory assistant either, as it seems pretty useless.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gem box available this week.
+- I eventually wrapped up and quit.
+- This was my forty-fourth weekly session of the year, and my first session for 2025, November. - 2025, Sunday, November 2nd
+
+### 2025, Sunday, November 9th
+
+<!-- Notes 2025.11.09
+Clash of Clans 2025.11.02
+PART 1
+Session 1
+Weekend session
+2 more wizard towers finish upgrading to level 11
+Leveled up to level 156
+Collection
+Village attacked, 21% 1 star attack, notable resources lost for this small amount of destruction
+Mortar upgraded to level 12 for 1,200,000 gold
+Alchemist: 15,000 dark elixir converted into 2,295,000 gold
+Connection issues, even with hot spot
+Went away after reloading
+Very brief connection issue, no further connection issues
+Bomb tower upgraded to level 7 for 2,000,000 gold
+Clock tower boost
+Lots of builder base battles
+Star jar used
+Ended with 4,303 trophies, back in Titanium League I
+Gem box cleaned up
+Extensive browsing, before quitting
+
+PART 2
+Session 2
+Mid nighttime session
+6 upgrades finish
+Wizard tower finishes upgrading to level 11
+2 Spring Traps in the Builder Base finish upgrading to level 5
+Lava Hound troop finishes upgrading to level 4
+Ice Goelm troop finishes upgrading to level 3
+Archer Queen finishes upgradingn to level 43
+Resource collection
+Upgrading Miner troop to level 5 for 2,000,000 elixir
+Upgrading first elixir storage building to level 13 for 900,000 gold
+Mass builder base wall upgrades using elixir
+5,200,000 elixir spent upgrading 13 walls to level 7 for 400,000 elixir each
+46 walls left to upgrade to level 7
+Browsing arouund, searching for an upgrade to do
+Fifth Spring Trap upgraded to level 5 for 500,000 gold
+Lava Launcher upgraded to level 8 for 4,600,000 gold, will take 10 days (likely less than 9, due to Clock Tower boost)
+Browsing around a lot
+Hidden tesla upgraded to level 9 for 1,050,000 gold
+
+Clash of Clans 2025.11.03
+Session 1
+Early morning session
+Mortar finishes upgrading to level 12 overnight
+Village attacked overnight, 54% 2 star attack, resources lost
+Browsing around
+15,000 dark elixir converted to 2,295,000 gold
+Upgrading second bomb tower to level 7 for 2,000,000 gold
+Browsing, mass colection
+Clock towerr boost
+Revenge attack, 89% 2 stars, resources regained
+Session mostly used to wake up, long collection session
+
+Session 2
+Early afternoon session
+Elixir storage finishes upgrading to level 13
+Saving up for eagle artillery upgrade, still spent 900,000  gold  upgrading a secon d elixir storage to level 13
+Trunk cleaned up in builder base, 5 gems
+Collection
+
+Session 3
+Mid nighttime session
+Bomb tower finished upgrading to level 7
+Hidden tesla finished upgrading to level 9
+Collection
+Saving up stll, no upgrades
+
+Clash of Clans 2025.11.04
+Session 1
+Morning session
+Barracks finished upgradinfg top level 14
+Second elixir storage building finished upgrading to level 13
+Miner troop finished upgrading to level 5
+Clone spell upgraded to level 4 for 1,500,000 elixir
+15,000 dark elixir converted to 2,295,000 gold
+Eagle artillery building upgraded to level 3 for 4,500,000 gold
+Collection, browsing around
+Clock tower boost
+Village attacked twice, 15%  0 star, with notable resource loss, despite just an archer queen being deployed, and taking a single shot, which shot through the entire village, and took 110,363 elixir, 18,277 gold, and 687 dark elixir (this is a flaw in the game) and also a 99% 2 star attack, where the last remaining defensive building (inferno tower) killed the last valkyrie attacking the base
+Attack replay
+Dark elixir storage upgraded to level 7 for 1,900,000 elixir
+
+Session 2
+Mid morning session
+Collectilon, browsing around
+
+Session 3
+Late mornming/early afternoon session
+Collection
+Barbarian King upgraded to level 42 for 30,500 dark elixir
+
+Session 4
+Late afternoon session
+Collection
+Third elixir storage upgraded to level 13 for 900,000 gold
+Now saving up to upgrade air defense
+
+Session 4
+Mid nighttime session
+Second bomb tower finished upgrading to level 7
+Collection, browsing around
+Obstacle cleared up in builder base
+No upgrades tonight
+
+Clash of Clans 2025.11.05
+Session 1
+Morning session
+Excessively long
+Third elixir storage building finished upgrading to level 13
+100% 3 star attack on my village, resources lost
+15,000 dark elixir converted to 2,295,000 gold
+First air defense building upgraded to level 10 for 2,500,000 gold
+Tornado trap upgraded to level 3 for 1,250,000 gold
+Attack replay
+Revenge attack against a Town Hall 14 player
+48% 1 star attack, got my elixir back, plus some, did not gain all of gold and dark elixir back
+Star bonus makes up for this (except for about 300 dark elixir)
+Clock tower boost
+Browsing around excessivly
+Fifth spring trap finished upgrading to level 5 in builder base
+2 walls upgraded to level 7 for 400,000 elixir each, 800,000 elixir total, 44 walls left to upgrade to level 7 (will cost 17,600,000 elixir)
+Sixth and final spring trap upgraded to level 5 for 500,000 gold
+Waiting for dark barracks
+Dark barracks finished upgrading to level 9
+
+Session 2
+Late morning session
+Continuing less than 10 minutes after the previous session
+Clone spell finishes upgrading to level 4, another upgrade required to max out level 9 laboratory
+Clone spell upgraded to level 5 for 2,000,000 elixir, will be able to clone an entire electrodragon
+
+Session 3
+Late morning session
+Continuing less than 30 minutes after the previous session
+Fourth and final elixir storage building upgraded to level 13 for 900,000 gold
+
+Session 4
+Early afternoon session
+Collection only
+Obstacle cleaned up in builder base, +2 gems
+
+Session 5
+Mid nighttime session
+Wi-Fi hot spot
+Collection
+Village attacked, 100% 3 star attack
+Base too high level for revenge (max town hall 13, strategically built, few unprotected resources or town hall buildings)
+Mass builder base battles
+Break to go to home village
+Fourth and final elixir storage building finishedc upgrading to level 13
+Dark spell factory upgraded to level 6 for 2,000,000 elixir
+Continued builder base battles
+New trophy record: 4375
+3D Touch issues
+Browsing around, collection
+Quit for the night
+
+Clash of Clans 2025.11.06
+Session 1
+Mid morning session
+Tornado trap finished uypgrading to max level 3
+Barbarian king finished upgrading to level 42
+Village attacked, 100% 3 star attack
+Revenge attack
+73% 2 star attack, most resources regained, as they were unprotected, and out in the open
+15,000 dark elixir converted to 2,295,000 gold
+Second air defense building upgraded to level 10 for 2,500,000 gold
+Inferno tower upgraded to level 4 for 1,500,000 gold
+Browsing around, collection
+Defense replay
+Clock tower boost
+
+Session 2
+Very short late morning session
+Starting 9 minutes after the last session
+Collection only
+
+Session 3
+Very short late morning session
+Starting 17 minutes after the last session
+Collection only
+
+Session 4
+Very short early afternoon session
+Collection only
+
+Session 5
+Very short mid evening session
+Collection
+Clone spell finished upgrading to level 5
+All level 9 laboratory upgrades finished
+Laboratory upgraded to level 6 for 1,900,000 elixir
+
+Session 6
+Short late nighttime session
+Collection
+Village attacked, 100% 3 star attack, some resources lost
+Revenge attack, 63% 1 star, all resources regained, plus lots extra
+Could have gotten more, base had close to a million gold and elixir each available, and over 8,000 dark elixir
+Browsing around, quit
+
+Clash of Clans 2025.11.07
+Session 1
+Early morning session
+Village attacked, 100% 3 star attack
+Collection, browsing around
+Attack replay
+No revenge yet
+15,000 dark elixir converted to 2,295,000 gold
+ALl builders busy
+Clock tower boost
+Waiting around
+
+Session 2
+Came back from a bath
+A little over 10 minutes left on an air defense upgrade
+Collection, browsing around
+First air defense building finished upgrading to level 10
+Revenger attack, 0 star 38% attack, some resources gained
+Third air defense building upgraded to level 10 for 2,500,000 gold
+Browsing around, eventually quit
+
+Session 3
+Short late nighttime session
+Eagle artillery finished upgrading to level 3
+Inferno tower finished upgrading to level 4
+Collection
+Village attacked, 43% 0 star attack, significant resource losses
+Inferno tower upgraded to level 5 for 2,000,000 gold
+Attack replay
+Leveled up to level 157, when spring trap in builder base finished upgrading to level 5
+6 walls upgraded to level 7 in builder base for 400,000 elixir each, 2,400,000 elixir total (38 walls left to upgade to level 7)
+
+Clash of Clans 2025.11.08
+Session 1
+Long mid morning session
+Village attacked, 86% 2 star attack, some resource losses
+15,000 dark elixir converted  to 2,295,000 gold
+Clock tower boost
+Attack replay
+Waiting around for second air defense to upgrade to level 10
+Wall upgraded to level 7 for 400,000 elixir in builder base (37 walls left to upgade to level 7)
+Inferno tower upgraded to level 6 for 3,000,000 gold
+Collection, browsing around
+
+Session 2
+Very short late morning session
+Collection only
+
+Session 3
+Medium length nighttime session
+Collection
+Laboratory finishes upgrading to level 9
+Previewing various troops, spells, and siege machines
+Golem troop upgraded to level 8 for 25,000 dark elixir
+Second army camp upgraded to level 10 for 2,250,000 elixir
+Browsing around
+
+Clash of Clans 2025.11.09
+PART 1
+Session 1
+Medium length morning session
+Collection, browsing
+Air defense still upgrading to level 10, can't upgrade anything yet
+No attacks on my village overnight
+15,000 dark elixir converted to 2,295,000 gold
+Clock tower boost
+Mass builder base attacks
+Doing poorly, briefly made it to PLatinum League III 2 times, but fell back down, and ended in Titanium League I with 4,326 trophies
+4 walls upgraded to level 7 for 400,000 elixir each, 1,600,000 elixir total in builder base (33 walls left to upgade to level 7)
+Third air defense finished upgrading to level 3
+Third army camp upgraded to level 3 for 2,250,000 elixir
+Browsing around
+Inferno tower next to finish upgrading
+!-->
+
+- I played every day this week, playing multiple times every day between 2025, November 2nd and 2025, November 9th. 
+- On my 2025, November 2nd sessions, my second session of the day was a short mid nighttime session. It was also a weekend session. 6 upgrades finished since I last played, wtih another Wizard Tower finishing its upgrade to level 11. 2 Spring Traps in my Builder Base finished upgrading to level 5, while my Lava Hound troop finished upgradinfg to level 4, my Ice Golem troop finished upgrading to level 4, and my Archer Queen finishedd upgradcing to level 43. I did resource collection, then upgraded my Miner troop to level 5 for 2,000,000 elixir. I began to upgrade my first elixir storage building to level 13 for 900,000 gold. I did mass builder base wall upgrades using elixir, spending 5,200,000 elixir to 13 walls to level 7 for 400,000 elixir each. Therte are now only 46 walls left to upgrade to level 7. I browsed around, searching for an upgrade to do, evedntually deciding to upgrade a fifth Spring Trao to level 7 for 500,000 gold, and also my Lava Launcher to level 8 for 4,600,000 gold, which will take 10 days (likely less than 9, due to 8-9 Clock Tower boosts) I browsed around a lot, and also upgraded a hidden tesla to level 9 for 1,050,000 gold.
+- On my 2025, November 3rd sessions, my first session of the day was a long early morning session. My session was mostly done to wake up, although I ended up getting sucked in. A mortar finished upgrading to level 12 overnight, while my village was also attacked overnight, taking 54% damage in a 2 star attack, with some resources lost. I browsed around a bit, then converted 15,000 dark elixir into 2,295,000 gold, before upgrading my secnond and final bomb tower to level 7 for 2,000,000 gold. I browsed around a lot, and did mass collection, using a clock tower boost. I did a revenge attack, dealing 89% damage in a 2 star attack, and regaining my lost resources. My second session of the dat was an early afternoon session. My first elixir storage building finished upgrading to level 13. I am working up on saving up for an Eagle Artillery upgrade, but knew I could easily make back 900,000 gold by tomorrow, so I upgraded a second elixir storage buiding to level 13 for 900,000 gold. I also cleaned up a trunk in the builder base, and earned 5 gems. I browsed around, and collected, before quitting. My third and final session of the day was a mid nighttime session. My bomb tower finished upgrading to level 67, and my hidden tesla finished upgrading to level 9. I mainly did collection, saving up, and not doing any upgrades.
+- On my 2025, November 4th sessions, my first session of the day was a morning session. My barracks finished upgrading to level 14, a second elixir storage building finished upgrading to level 19, and my Miner troop finished upgrading to level 5. I began to upgrade a clone spell to level 4 for 1,500,000 elixir. After that, I converted 15,000 dark elixir for 2,295,000 gold, then upgraded my Eagle Artillery building to level 3 for 4,500,000 gold. I did ciollectiom, and browsed around, also using a clock tower boost in the builder base. My village was attacked twice overnight. The first attack was a 15% 0 star attack, with notable resource loss, despite just an archer queen being deployed, and taking a single shot, which shot through the entire village, and took 110,363 elixir, 18,277 gold, and 687 dark elixir (this is a flaw in the game) and also a 99% 2 star attack, where the last remaining defensive building (inferno tower) killed the last valkyrie attacking the base. I watched both attack replays, then upgraded my dark elixir storage building to level 7 for 1,900,000 elixir. My second session of the day was a mid morning session, where I only did collection, and browsed around. My third session of the day was a late morning to early afternoon session, where I did collection, and began to upgrade my Barbarian King to level 42 for 30,500 dark elixir. My fourth session of the day was a late fternoon session, where I only did collection. I began to upgrade a third elixir storage building to level 13 for 900,000 gold. I am now saving up to upgrade my Air Defense buildings. My fifth and final session of the day was a mid nighttime session. My second bomb tower finished upgrading to level 7. I browsed around, did collection, and cleaned up obstacles in the buildler base. No upgrades were done tonight.
+- On my 2025, November 5th sessions, my first session of the day was a morning session. My session was excessively long. A third elixir storage building finished upgrading to level 13. Overnight, my village was attacked in a 100% 3 star attack, with resources being lost. I converted 15,000 dark elixir to 2,295,000 gold. I then upgraded my first Air Defense building to level 10 for 2,500,000 gold, and my tornado trap to max level 3 for 1,250,000 gold. I watched the attack replay, then did a revenge attack against a Town Hall 14 player. I managed to cause 48% destruction in a 1 star attack, gaining my erlixir back, plus some (but not all) of my gold and dark elixir. My star bonus made up for this (except for about 300 dark elixir) I used a clock tower boost, and browsed around excessively. A fifth spring trap finished upgrading to level 5 in my builder base, and I upgraded 2 walls to level 7 for 400,000 elixir e ach, 800,000 elixir total. There are 44 walls left to upgrade to level 7, which will cost 17,600,000 more elixir. I then upgraded my sixth and final Spring Trap to level 5 for 500,000 gold, then waited around for my dark barracks to upgrade to level 9. Once finished, I quit, without doing an upgrade. My second session of the day was a late morning session, continuing less than 10 minutes after the previous session. My Clone Spell finisheD upgrading to level 4, there was another upgrade required to max out level 9 laboratory, so I began to upgrade my Clone Spell to level 5 for 2,000,000 elixir, which (when done) will allow me to clone an entire electrodragon. My third session of the day was a late morning session, continuing lelss than 30 minutes after the previous session. I did collection, then upgraded my fourth and final elixir storage building to level 13 for 900,000 gold. My fourth session of the day was an early aftern oon session, where I only did collection. I cleaned up an obstacle in the builder base, and gained 2 gems. Not all cleanups are being mentioned. My fifth and final session of the day was a longish mid nighttime session, where I playd using a Wi-Fi hot spot. I did coll.ection. My village had been attacked since I last  played, and took 100% damahge in a 3 star attack. The base was too high level for revenge (max town hall 13, strategically built, few unprotected resources or town hall buildings) I went and did mass builder base battles, before taking a break to go to my home village, where a fourth and final elixir storage building finished upgrading to level 13. I began to upgrade my Dark Spell Factory to level 6 for 2,000,000 elixir, before continuing builder base battles. I reached a new trophy record (4,375 trophies) there were 3D touch issues present. I browsed around and did collection, before quitting for the night.
+- On my 2025, November 6th sessions, my first session of the day was a mid morning session. My tornado trap finished upgrading to max level 3, and my Barbarian King finished upgrading to level 42. My village was attacked, sustaining 100% damage in a 3 star attack. I dioda revenge attack, dealing 73% damage in a 2 star attack, with most of my resources being regained, as they were unprotected, and out in the open. I then converted 15,000 dark elixir into 2,295,000 gold, before upgrading a second Air Defense building to level 10 for 2,500,000 gold, along with an Inferno Tower to level 4 for 1,500,000 gold. I browsed around, and did collection, watching a defense replay, and using a Clock Tower boost, before quitting. My second session of the day was a very short late morning session, starting 9 minutes after the last session. I only did collection. My third session of the day was also a very short late morning session, starting 17 minutes after the last session. I only did collection. Additionally, my fourth session of theday was a very short session, this time in the early afternoon, where I only did collection. My fifth session of the day was a very short mid evening session. I did collection. My Clone Spell had finished upgrading to level 5, and all level 9 laboratory upgrades were now finished, so I began to upgrade my laboratory to level 6 for 1,900,000 gold. My sixth and final session of the day was a short late nighttime session, where I did collection. My village was attacked, taking 100% damage in a 3 star attack, with some resources lost. I did a revenge attack, dealing 63% damage in a 1 star. I gained back all of my resources, plus lots extra. I could have gotten more, the base had close to a million gold and elixir each available, and over 8,000 dark elixir. I browsed around for a bit, then quit for the night.
+- On my 2025, November 7th sessions, my first session of the day was an early morning session. My village was again attacked, taking 100% damage in a 3 star attack. I did collection, browsed around, and watched an attackr eply, not doing a revenge attack yet. I converted 15,000 dark elixir to 2,295,000 gold, although all builders were busy, so I couldn't do an upgrade. I used a clock tower boost, and waited around a bit. My second session of the day was also an early morning session. I came back after taking a bath. There was still a little over 10 minutes left on an Air Defense upgrade, so I did collection, and browsed around, as I waited for the upgrade ton finish. My first Air Defense building finished upgrading to level 10. I dis a revenge attack, dealing 38% damage in a 0 star attack, although I gained somem resources. I then went and upgraded my third Air Dfense building to level 10 for 2,500,000 gold, then browsed around, and eventually quit. My third session of the day was a short late nighttime session. My Eagle Artillery finished upgrading to level 3, and my Inferno Tower finished upgrading to level 4. I did some collection. My village was attacked since I last played, taking 43% damage in a 1 star attack, with significant resource losses. I began to upgrade an Inferno Tower to level 5 for 2,000,000 gold, and watched an attack replay. I leveled up to level 157, when my sixth spring trap in my builder base finished upgrading to level 5. I went and upgraded 6 walls in my Builder Base to level 7 for 400,000 elixir each, 2,400,000 elixir total. There are 38 walls left to upgrade to level 7.
+- On my 2025, November 8th sessions, my first session of the day was a long mid morning session. My village was attacked overnight, taking 86% damage in a 2 star attack, with some resource losses. I converted 15,000 dark elixir to 2,295,000 gold, then used a clock tower boost. I watched an attack replay, then waited around for a second Air Defense building to upgrade to level 10. I upgraded a wall in my Builder Base to level 7 for 400,000 elixir in builder base. There are 37 walls left to upgrade to level 7. I began to upgrade an Inferno Tower to level 6 for 3,000,000 gold. I then did collection, and browsed around. My second session of the day was a very short late morning session. I did collection only. My third session of the day was a medium length nighttime session. I did collection. My laboratory had finished upgrading to level 9. I previewing various troops, spells, and siege machines, then upgraded my Golem troop to level 8 for 25,000 dark elixir, along with a second army camp to level 10 for 2,250,000 elixir, before browsing around, and quitting.
+- On my 2025, November 9th sessions, my first session of the day was a medium length morning session. I did collection and browsing. My Air Defense was still upgrading to level 10, and all builders were busy, so I couldn't do any upgrades yet. There weren't any attacks on my village overnight. I converted 15,000 dark elixir to 2,295,000 gold, then used a clock tower boost, and began to do mass builder base attacks. I did poorly, briefly made it to Platinum League III 2 times, but fell back down, and ended in Titanium League I with 4,326 trophies. My trophy record today was 4,412. I upgraded 4 walls to level 7 for 400,000 elixir each, 1,600,000 elixir total in my builder base. There are 33 walls left to upgrade to level 7. A third Air Defense building finished upgrading to level 10, so I began to upgrade a third Army Camp to level 3 for 2,250,000 elixir. I then browsed around a bit. I plan to upgeade my Inferno Tower next, once it finishes upgrading
+- I was attacked many times since I last played.
+- The game did function off of a Wi-Fi hot spot this week only on the first Wednesday session, and the first Sunday session, the other sessions did not use a hot spot.
+- The game did not require an update this week.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it, as I don't see it as worth it. I don't plan on upgrading the laboratory assistant either, as it seems pretty useless.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There weren't any gem boxes available this week.
+- I eventually wrapped up and quit.
+- This was my forty-fifth weekly session of the year, and my second session for 2025, November. - 2025, Sunday, November 9th
+
+</details>
+
+### 2025, Sunday, November 16th
+
+<!-- Notes 2025.11.16
+Clash of Clans 2025.11.09
+PART 2
+Session 2
+Shortish length morning session
+Collection, browsing
+Waiting for inferno tower to finish upgrading to level 5
+Inferno tower upgraded to level 6 for 3,000,000 gold
+
+Session 3
+Shortish nighttime session
+Waiting for army camp to finish upgrading to level 10
+Collection
+Browsing around
+No upgrades tonight
+
+Clash of Clans 2025.11.10
+Session 1
+Long length morning session
+Collection
+Village attacked overnight, 100% 3 star attack
+Clock tower boost
+Builder base wall upgraded to level 7 for 400,000 elixir, 32 walls left to upgrade to level 7 (will cost 12,800,000 more elixir)
+Attack replay
+Risky revenge attack, mainly aiming for elixir
+40% 0 star attack, some resources gained
+15,000 dark elixir converted to 2,295,000 gold
+Waiting for inferno tower to finish upgrading to level 6
+Now max level for Town Hall 12
+Surprised how fast I have gotten through most Town Hall 12 gold upgrades
+Worries about running out of builder base upgrades eventually
+Fourth and final air defense upgraded to level 10 for 2,500,000 gold
+Browsing around, quitting
+
+Session 2
+Short length afternoon session
+Golem troop finished upgrading to level 8
+Collection, browsing around
+Plans to start upgrading X-BOWS next
+No upgrades
+
+Session 3
+Longish late nighttime session
+Village attacked, 83% 2 star attack
+Collection
+Waiting for second Inferno Tower to finish upgrading to level 6
+X-BOW upgraded to level 6 for 2,500,000 gold
+Attack replay
+Inferno Tower upgrade finished
+Waiting for second Army Camp to finish upgrading to level 10
+Browsing around
+Army Camp upgrade finished
+More electrodragon capacity
+Revenge attack, 100% 3 star attack (Town Hall 11 player)
+Lots of resources
+Golem troop upgraded to level 9 for 31,250 dark elixir
+Continued to browse
+Quitting for the night
+
+Clash of Clans 2025.11.11
+Session 1
+Long length mid morning session
+Third Ar,my Camp finished upgrading to level 10
+Lava Launcher finished upgrading to level 8
+Village attacked, 2 star, 89% attack
+Plenty of resources
+Revenge attack
+1 star 72% attack, most of resources regained
+15,000 dark elixir converted to 2,295,000 gold using the alchemist
+Second X-BOW upgraded to level 6 for 2,500,000 gold
+Trying to get the most expensive upgrades out of the way while the Hammer Jam event is active
+Extensive browsixng
+Attack replay
+Builder base: Lava Launcher upgraded to level 9 for 4,900,000 gold, 11 day upgrade time (will be less than 10 days, due to clock tower boost)
+Clock tower boost
+Wall upgraded to level 7 for 400,000 elixir, 31 walls left to upgrade to level 7 (will cost 12,400,000 more elixir)
+Partial claim of End of Clash rewards
+SUPERCELL may have overestimated how many people are actively upgrading
+Clan Castle cake, and research soup
+Changing clan settings
+Reverting town hall 11 requirement, keeping it at 8
+Iron I builder base rank requirement a symbolic change (ClashofT**R**M)
+Browsing extensively
+Break to take a bath
+
+Session 2
+Short late morning session
+Starting 17 minutes after the previous session
+Collection, browsing around
+Clan Castle upgraded to level 8 for 2,500,000 elixir
+
+Session 3
+Short afternoon session
+Collection, browsing around
+Obstacle in Builder Base cleaned up
+Second study soup used
+
+Session 4
+Shortish late nighttime session
+Third X-BOW upgraded to level 6 for 2,500,000 gold
+Collection, browsing around
+Quitting for the night
+
+Clash of Clans 2025.11.12
+Session 1
+Long length mid morning session
+Golem finished uprading to level 9
+Village not attacked overnight
+Gem box
+15,000 dark elixir converted to 2,295,000 gold
+Clock tower boost
+Wall upgraded to level 7 for 400,000 elixir, 30 walls left to upgrade to level 7 (will cost 12,000,000 more elixir)
+Waiting for fourth and final Army Camp to finish upgrading to level 10
+Fourth and final X-BOW upgraded to level 6 for 2,500,000 gold
+All 4 X-BOWS now upgrading at the same time
+Waiting for Air Defense to upgrade to level 10
+All 4 Air Defense buildings are now level 10
+Browsing around
+Battle practice 2x
+Bowling with Witches
+Flyingh Circus
+1,200,000 gold, 1,200,000 elixir, and 12,000 dark elixir gained
+Skeleton Spell upgraded to level 5 for 20,000 dark elixir
+Hero Hall upgraded to level 6 for 2,750,000 elixir
+Tempted to use extra builder, not worth 40 gms
+Plans to upgrade hidden tesla
+
+Session 2
+Longish nighttime session
+No Wi-Fi hot spot, the game has been stable enough lately
+Collection
+Waiting for X-BOW to finish upgrading
+Mass builder base battles
+Starting with 4326 trophies
+Several battles
+First X-BOW finishes upgrading to level 6
+First Hidden Tesla upgraded to level 10 for 1,500,000 gold
+Continued Builder Base battles
+Poor offense, good defense
+4 walls upgraded to level 6 for 400,000 elixir, 1,600,000 elixir total, 26 walls left to upgrade to level 7 (will cost 10,400,000 more elixir)
+Quitting for the night
+
+Clash of Clans 2025.11.13
+Session 1
+Long length mid morning session
+Collection
+Village attacked twice overnight
+39% 0 star attack, very little resource loss, revenge unavailable (would have been easy, all defesnes (including walls) were level 1, on a town hall 12 base
+100% 3 star attack, notable resource loss
+Waiting around for buildings to upgrade
+Deciding between convering gold or elixir
+Chose to stay with gold conversion
+15,000 dark elxiir converted to 2,295,000 gold
+Waiting around
+Clock tower boost
+Builder Base: 1 wall upgraded to level 6 for 400,000 elixir, 25 walls left to upgrade to level 7 (will cost 10,000,000 more elixir)
+Attack replays
+Second X-BOW finishes upgrading to level 6, also leveled up to level 158
+Second Hidden Tesla upgraded to level 10 for 1,500,000 gold
+Failed revenge attack, 48% 0 star attack, gained some resources back
+Browsing around, quitting
+
+Session 2
+Short late morning session
+Collection
+Third Hidden Tesla upgraded to level 10 for 1,500,000 gold
+Obstable cleaned up in builder base
+
+Session 3
+Shortish late nighttime session
+Collection
+Skeleton spell finished upgrading to level 5
+Deciding to upgrade electro dragon to level 3 for 3,500,000 elixir, instead of upgrading a building
+Waiting around for upgrades to finish
+Third X-BOW finishes upgrading to level 6
+Fourth hidden Tesla upgraded to level 10 for 1,500,000 gold
+Browsing around
+"Last Town Hall 17 challenge"
+First attempt: 46% 0 star attack
+First Hidden Tesla finishes upgrading to level 10
+Fifth and final hidden Tesla upgraded to level 10 for 1,500,000 gold
+"Last Town Hall 17 challenge"
+Second attempt: 55% 2 star attack
+Browsing around, quitting for the night
+
+Clash of Clans 2025.11.14
+Session 1
+Very long length morning session
+"End of Clash" reward collection
+Builder star jar, shiny ore, 2 builder bites, 902,000 elixir
+Village asttcked once, 0 star, 35% attack, resource losses
+Attack replay
+Clock tower boost
+Shovel of obstacles
+15,000 dark elixir converted to 2,295,000 elixir
+Waiting around
+Fourth X-BOW finishes upgrading to level 6
+Blacksmith upgraded to level 5 for 2,500,000 elixir
+Easy revenge attack, 100% 3 star attack, resources regained, and almost completely doubled
+Waiting around
+Second Hidden Tesla finishes upgrading to level 10
+Workshop upgraded to level 2 for 1,850,000 elixir
+Builder Base: 1 wall upgraded to level 6 for 400,000 elixir, 24 walls left to upgrade to level 7 (will cost 9,600,000 more elixir)
+A single connection issue
+Builder bites 2x
+Mortar upgraded to level 11 for 1,150,000 gold
+
+Session 2
+Longish length late nighttime session
+Third and fourth Hidden Teslas finished upgrading to level 10
+Hero Hall finished upgrading to level 6
+Collection
+Browsing around
+Mortar upgraded to level 11 for 1,150,000 gold
+2 Archer Towers upgraded to level 17 for 900,000 gold each, 1,800,000 gold total
+Tree stump cleaned up in builder base, 6 gems gained
+Browsing leagues
+Browsing a top players base, spoiling the game for myself
+Quitting for the night
+
+Clash of Clans 2025.11.15
+Session 1
+Longish length morning session
+Village attacked twice overnight
+5% 0 star attack (4,363 dark elixir stolen, after the attack used lightning spells, and nothing else) this shouldn't be allowed either. If gold, elixir, and dark elixir storages are immune to spell damage, the same should go for collectors, as they also store a lot of resources
+Other attack: 100% 3 star attack, significant resource loss (326,499 gold, 574,935 elixir, 3,238 dark elixir) this attack was legitimate
+Attack replays
+Browsing around
+CLock tower boost
+15,000 dark elixir converted to 2,295,000 gold
+Mortar upgraded to level 12 for 1,200,000 gold
+Told myself I wouldn't do this, ended up playing through the entirety of the clock tower boost (32+ minute session)
+Waitin ona rcher towers
+Archer towers finished upgrading to level 17
+Connection issues, frequent
+Builder Base: 1 wall upgraded to level 7 for 400,000 elixir, 23 walls left to upgrade to level 7 (will cost 9,200,000 more elixir)
+Another archer tower upgraded to level 17 for 900,000 gold
+Deciding on if I should upgrade the last one
+Revenge attack, 1 star, 69% attack
+Enough gold in treasury to do it, and upgrade my last mortar later
+Last archer tower upgraded to level 17 for 900,000 gold
+
+Session 2
+Short length mid afternoon session
+Mortar finished upgrading to level 11
+Collection
+End of Clash rewards, 2 study soups, 5 starry ore
+Final mortar upgraded to level 12 for 1,200,000 gold
+Quitting for now
+
+Session 3
+Shortish late nighttime session
+2 Archer Towers finish upgrading to level 17
+Workshop finishes upgrading to level 2
+Electrodragon finishes upgrading to level 3
+Collection, browsing around
+Another workshop upgrade available, workshop upgraded to level 3 for 2,500,000 elixir
+2 cannons upgraded to level 16 for 650,000 gold each, 1,300,000 gold total
+Quitting for the night
+
+Clash of Clans 2025.11.16
+PART 1
+Session 1
+Longish morning session
+Wi-FI hot spot
+2 Mortars finisnhed upgrading to level 12
+Blacksmith finished upgrading to level 5
+Failed to get a screenshot of the new unlock, due to an Android screenshot bug
+2 cannons finished upgrading to level 16
+Village attacked twice overnight
+48% 0 star attack, 56% 1 star attack, little overall resource loss for gold and elixir, not for dark elixir
+15,000 dark elixir converted to 2,295,000 gold
+Rage spell upgraded to max level 6 for 2,500,000 elixir
+3 cannons upgraded to level 17 for 750,000 gold each, 2,250,000 gold total
+1 cannon upgraded to level 16 for 650,000 gold
+Object cleaned up in builder base, 4 gems gained
+Clock tower boost
+Builder base battles
+4,352 trophies -> 4,364 trophies, lots of battles, limited success
+Builder star jar used
+Builder Base: 6 walls upgraded to level 7 for 400,000 elixir each, 2,400,000 elixir total, 17 walls left to upgrade to level 7 (will cost 6,800,000 more elixir)
+Revenge attack, 61% 3 stars, significant resources regained (1,001,817 gol,d, 304,6001 elixir, 2,859 dark elixir)
+Not all dark elixir regained
+Browsing around, quitting
+!-->
+
+- I played every day this week, playing multiple times every day between 2025, November 2nd and 2025, November 9th. 
+- On my 2025, November 9th sessions, my second session of the day was a short late morning session. It was also a weekend session. I did some collection, and browsed around, waiting for my inferno tower to finish upgrading to level 5. I then upgraded an inferno tower to level 6 for 3,000,000 gold, before quitting. My third session of the day was a shortish late nighttime session. I did collection, browsed around, and waited for an army camp to finish upgrading to level 10, although I didn't do any upgrades tonight.
+- On my 2025, November 10th sessions, my first session of the day was a long length morning session. My village was attacked overnight, sustaining 100% damage in a 3 star attack. I did collection, used a clock tower boost, and upgraded a wall in my builder base wall to level 7 for 400,000 elixir. There are 32 walls left to upgrade to level 7, which will cost 12,800,000 more elixir. I watched an attack replay, then did a risky revenge attack, mainly aiming for elixir. I dealt 40% damage in a 0 star attack, gaining some resources. Next I converted 15,000 dark elixir to 2,295,000 gold, then waited around for my inferno tower to finish upgrading to level 6. I found that it was now max max level for Town Hall 12. I am surprised by how fast I have gotten through most Town Hall 12 gold upgrades. I have also been starting to worry about running out of builder base upgrades eventually, as there hasn't been a new builder hall level update in years. I ubegan to upgrade my fourth and final air defense to level 10 for 2,500,000 gold, then browsed around and quit. My second session of the day was a short length afternoon session. My golem troop finished upgrading to level 8. I did some collection, and browsed around, but did not do any upgrades. I plan to start upgrading my X-BOWs next. My third session of the day was a longish late nighttime session. My village had been attacked since the last time I played, taking 83% damage in a 2 star attack. I did some collection, and waited around for my second Inferno Tower to finish upgrading to level 6, before upgrading my first X-BOW to level 6 for 2,500,000 gold. I watched an attack replay, then waited for my second army camp to finish upgrading to levwel 10. I browsed around for a bit. After the army camp upgrade, I had more room for electrodragons. With this new capacity, I went and did a revenge attack, dealing 100% damage in a 3 star attack against a Town Hall 11 player. I gained lots of resources, and began to upgrade my golem troop to level 9 for 31,250 dark elixir, before continuing to browse, and eventually quitting for the night.
+- On my 2025, November 11th sessions, my first session of the day was a long length mid morning session. A third army camp had finished upgrading to level 10, while my lava launcher finished upgrading to level 8. My village was attacked overnight, taking 89% damage in a 2 star attack. I still had plenty of resources, but still did a revenge attack, dealing 72% damage i n a 1 star attack, where I regained most of my resources. I then converted 15,000 dark elixir to 2,295,000 gold using the alchemist, then upgraded a second X-BOW to level 6 for 2,500,000 gold. I am trying to get the most expensive upgrades out of the way while the Hammer Jam event is active. Afterwards, I browsed around extensively, watched an attack replay, then upgraded my lava launcher to level 9 for 4,900,000 gold, which has an 11 day upgrade time (which will be less than 10 days, due to clock tower boost) I used a clock tower boost, then upgraded a wall to level 7 for 400,000 elixir. There are 31 walls left to upgrade to level 7, which will cost 12,400,000 more elixir. I partially claimed some rewards from the End of Clash event. It looked like SUPERCELL may have overestimated how many people are actively upgrading. I collected a Clan Castle cake, and some study soup, then changed clan settings. I decided to revert my change for a town hall 11 requirement, keeping it at 8, so that I don't have to change the description. I also uppedc the builder base rank requirement to Iron I, which is a symbolic change, due to the Clan Name (ClashofTRM) (TRM = The **iRon** Melon) it is mostly obsolete at this point, but I don't want to part with it, as it is about a decade old. I browsed around extensively, then took a break to take a bath. My second session of the day was a short late morning session, starting 17 minutes after the previous session. I did some collection, and browsed around, before upgrading my Clan Castle to level 8 for 2,500,000 elixir, before quitting. My third session of the day was a short afternoon session. I cleaned up an obstacle in the builder base, then used up a second study soup, before quitting. My fourth and final session of the day was a shortish late nighttime session. I began to upgrade a third X-BOW to level 6 for 2,500,000 gold, did collection, browsed around briefly, before quitting for the night.
+- On my 2025, November 12th sessions, my first session of the day was a long length mid morning session. My golem troop finished upgrading to level 9, while my vilage was nlot attacked overnight. I cleaned up a gem box, then converted 15,000 dark elixir into 2,295,000 gold. I used a clock tower boost, then upgraded a wall to level 7 for 400,000 elixir. There are 30 walls left to upgrade to level 7, which will cost 12,000,000 more elixir. I waited around for my fourth and final army camp to finish upgrading to level 10, before loading in new troops, and beginning to upgrade a fourth and final X-BOW to level 6 for 2,500,000 gold. All 4 of my X-BOWS are now upgrading at the same time. I waited arouind for my Air Defense to finish upgrading to level 10. Once finished, all 4 of my Air Defense buildings are now level 10. I continued to browse around fro a bit, doing 2 battle practice missions, the first being Bowling with Witches, and the second being Flyin g Circus. From these, I gained 1,200,000 gold, 1,200,000 elixir, and 12,000 dark elixir. I began to upgrade my Skeleton Spell  to level 5 for 20,000 dark elixir, along with my Hero Hall to level 6 for 2,750,000 elixir. I was tempted to use my extra builder to upgrade a hidden tesla, but it wasn't worth 40 gems. My second session of the day was a longish late nighttime session. I did not use a Wi-Fi hot spot, as the game has been stable enough lately. I did collection, then briefly waited for one of my X-BOWs to finish upgrading, although I didn't finish waiuing, and began to do mass builder base battles, during which the X-BOW finished upgrading. I started with 4,326 trophies, and ended with 4,352 trophies. I did several battles, before taking a break, when my first X-BOW finished upgrading to level 6. I began to upgrade my first Hidden Tesla to level 10 for 1,500,000 gold, before continuing builder base battles. My offense was poor, but my defense was good. I upgraded 4 walls to level 7 for 400,000 elixir, 1,600,000 elixir total. There are now only 26 walls left to upgrade to level 7, which will cost 10,400,000 more elixir. Afterwards, I quit for the night.
+- On my 2025, November 13th sessions, my first session of the day was a long length mid morning session. I did collection. My village had been attacked twice overnight. The first attack was a 39% 0 star attack, with very little resource loss, and revenge unavailable (revenge would have been easy, all defenses (including walls) were level 1, on a town hall 12 base) the second attack was a 100% 3 star attack, with notable resource loss. I waited around for buildings to upgrade, deciding between converting gold or elixir, with the decision ending up being to stay with gold conversion. I had 15,000 dark elxiir converted to 2,295,000 gold using the alchemist. I waited around a bit, used a clock tower boost, then upgraded 1 wall to level 7 for 400,000 elixir in my builder base. There are now only 25 walls left to upgrade to level 7, which will cost 10,000,000 more elixir. I watched some attack replays. After which, my second X-BOW finished upgrading to level 6, and I also leveled up to level 158 at the same time. I began to upgrade a second Hidden Tesla to level 10 for 1,500,000 gold, then did a failed revenge attack, dealing 48% damage in a 0 star attack, while gaining back some resources. I then browsed around, and quit. My second session of the day was a short late morning session. I did some collection, then upgraded a third Hidden Tesla to level 10 for 1,500,000 gold, before cleaning up an obstacle in my builder base. My third session of the day was a shortish late nighttime session. My Skeleton Spell finished upgrading to level 5. I did some collection, then decided to upgrade my electro dragon to level 3 for 3,500,000 elixir, instead of upgrading a building. I waiting around for upgrades to finish, with my third X-BOW finishing its upgrade to level 6. I began to upgrade a fourth hidden Tesla to level 10 for 1,500,000 gold, before browsinfg around a bit. I attempted the "Last Town Hall 17 challenge" my first attempt was a 46% 0 star attack. During this time, my first Hidden Tesla finished upgrading to level 10. I began to upgrade my fifth and final hidden Tesla to level 10 for 1,500,000 gold, before attempting the "Last Town Hall 17 challenge" again, doing 55% damage in a 2 star attack. I continued to browse around for a bit, then quit for the night.
+- On my 2025, November 14th sessions, my first session of the day was a very long length mid morning session. I did some End of Clash reward collection, gaining a builder star jar some, shiny ore, 2 builder bites, and 902,000 elixir. My village was attacked once, in a 0 star, 35% attack, with resource losses. I watched an attack replay, then used my clock tower boost, and also a shovel of obstacles. I then converted 15,000 dark elixir to 2,295,000 elixir, before waiting around. My fourth X-BOW finished upgrading to level 6. I began to upgrade my Blacksmith to level 5 for 2,500,000 elixir. I did an easy revenge attack, doing 100% damage in a 3 star attack, gaining all of m y resources back, with almost double the amount of resources lost being gained back. I waited around a bit, my second Hidden Tesla finished upgrading to level 10, and I began to upgrade my Workshop to level 2 for 1,850,000 elixir. In my Builder Base, I had 1 wall upgraded to level 7 for 400,000 elixir. There are now only 24 walls left to upgrade to level 7, which will cost 9,600,000 more elixir. There was a single connection issue during this time. I used 2 builder bites, waiting through the first one, as I didn't know tjhat they stacked. Later on, I upgraded my mortar to level 11 for 1,150,000 gold. My second session of the day was a longish length late nighttime session. My third and fourth Hidden Teslas finished upgrading to level 10, and my Hero Hall finished upgrading to level 6. I did some collection, and browsed around, before upgrading a mortar to level 11 for 1,150,000 gold. I also upgraded 2 Archer Towers to level 17 for 900,000 gold each, 1,800,000 gold total, and had a tree stump cleaned up in my builder base, gaining 6 gems from this. Afterwards, I browsed through leagues, and began to browse a top players base, spoiling the game for myself, before quitting for the night.
+- On my 2025, November 15th sessions, my first session of the day was a longish length mid morning session. My village was attacked twice overnight. The first attack was a 5% 0 star attack, where 4,363 dark elixir stolen, after the attacker used lightning spells, and nothing else. This shouldn't be allowed either. If gold, elixir, and dark elixir storages are immune to spell damage, the same should go for collectors, as they also store a lot of resources. The other attack was a 100% 3 star attack, with significant resource loss (326,499 gold, 574,935 elixir, 3,238 dark elixir) although this attack was legitimate. I watched attack replays, then browsed around for a bit, used a clock tower boost, before converting 15,000 dark elixir converted to 2,295,000 gold. I then began to upgrade a mortar to level 12 for 1,200,000 gold. I told myself I wouldn't do this today: I ended up playing through the entirety of the clock tower boost (32+ minute session) and waited around for an archer tower to finish upgrading to level 17. Connection issueds were frequwnt. In the builder base, I upgraded 1 wall to level 7 for 400,000 elixir. There are now only 23 walls left to upgrade to level 7, which will cost 9,200,000 more elixir. I began to upgrade another archer tower to level 17 for 900,000 gold, and was deciding on if I should upgrade the last one. I did a revenge attack, dealing 69% damage in a 1 str attavck. I now had enough gold in my treasury to allow me to upgrade the archer tower now, and my last mortar later, so I upgraded my last archer tower to level 17 for 900,000 gold, before quitting,. My second session of the day was a short length mid afternoon session. I did collection., My mortar finished upgrading to level 11, so after collecting some End of Clash rewards (2 study soups, and 5 starry ores) I upgraded my final mortar to level 12 for 1,200,000 gold, before quitting for now. My third session of the day was a shortish late nighttime session. 2 Archer Towers finished upgrading to level 17, while my Workshop finished upgrading to level 2, and my Electrodragon troop finished upgrading to level 3. I did some collection, and browsing around. Another workshop upgrade was available, so I began to upgrade my workshop to level 3 for 2,500,000 elixir, along with 2 cannons to level 16 for 650,000 gold each, 1,300,000 gold total. I then quit for the night. Quitting for the night
+- On my 2025, November 16th sessions, my first session of the day was a longish length mid morning session. I used a Wi-Fi hot spot, and had a weekend session. 2 Mortars finished upgrading to level 12, while my Blacksmith finished upgrading to level 5. I failed to get a screenshot of the new unlock, due to an Android screenshot bug. 2 cannons also finished upgrading to level 16. My village was attacked twice overnight, sustaining 48% damage in a 0 star attack, and also 56% damage in a 1 star attack, with little overall resource loss for gold and elixir, but not for dark elixir, where I lost close to 5,000. I still had enough, so I converted 15,000 dark elixir into 2,295,000 gold. I began to upgrade my Rage spell to max level 6 for 2,500,000 elixir, along with 3 cannons to level 17 for 750,000 gold each, 2,250,000 gold total, and also 1 cannon to level 16 for 650,000 gold. I cleaned up an object in the builder base, and gained 4 gems. Next I used a clock tower boost, then dkid some builder base battles. I went from 4,352 trophies to 4,364 trophies, doing lots of battles, with limited success. I also jused a builder star jar. In my builder base, I upgraded 6 walls to level 7 for 400,000 elixir each, 2,400,000 elixir total, with only 17 walls left to upgrade to level 7, which will cost 6,800,000 more elixir. I did a revenge attack, dealing 61% damage iin a 2 star attack, gaining back a significant amount of resources (1,001,817 gold, 304,601 elixir, and 2,859 dark elixir. Not all of my dark elixir was regained. I browsed around for a bit, then quit.
+- I was attacked many times since I last played.
+- The game did function off of a Wi-Fi hot spot this week only on the first Sunday session, but not the first Wednesday session, the other sessions did not use a hot spot.
+- The game did not require an update this week.
+- I am still not planning to buy the builders apprentice anytime soon. I now know that it isn't a temporary item, but I am not willing to spend gems on it, as I don't see it as worth it. I don't plan on upgrading the laboratory assistant either, as it seems pretty useless.
+- I still miss the old UI. There should at least be an option to toggle the classic UI.
+- There was 1 gem box available this week.
+- I eventually wrapped up and quit.
+- This was my forty-sixth weekly session of the year, and my third session for 2025, November. - 2025, Sunday, November 16th
+
+***
+
+### Home village battles
+
+<!-- No data available for home village battles at the moment, new section. - 2022, Sunday, May 29th !-->
+
+<details><summary><p>Click/tap here to expand/collapse older entries</p></summary>
+
+- I did not start any battles in the home village, or get attacked by anyone since I last played. - 2022, Sunday, May 29th to 2022, Sunday, October 30th
+- I feel like I am not visible to other players for attacks at all anymore. I did not start any battles in the home village, or get attacked by anyone since I last played. - 2022, Sunday, November 6th to 2023, Sunday, February 26th
+- Well nevermind on that statement, after nearly a full year, someone attacked my base. Surprisingly, the attack was successful. The attacker took advantage of the little gap I left up in my village, which was a huge weakness, as lots of vital air defense was vulnerable, and it left open a quicker route to the town hall. The attacker wasn't able to get 2 stars (they got 49%, 1 star) I just didn't expect someone of this level to go after me. I temporarily moved buildings to cover any openings to prevent this from happening again. Luckily, I didn't lose very many resources. - 2023, Sunday, March 19th
+- I did not get attacked since I last played. - 2023, Sunday, March 26th
+- I got attacked since I last played, my base was 100% destroyed by another town hall 10 player, who was much less advanced (their base was much lower level compared to mine) I didn't lose very many resources. - 2023, Sunday, April 2nd
+- I did not get attacked since I last played. - 2023, Sunday, April 9th to Sunday, April 23rd
+- I got attacked since I last played, my base was 100% destroyed. I didn't lose very many resources. - 2023, Sunday, April 30th
+- I did not get attacked since I last played. - 2023, Sunday, May 7th to 2023, Sunday, July 16th
+- I got attacked 3 times since I last played, of which all 3 were unsuccessful, but resulted in significant resource losses. I could have done other upgrades today if it wasn't for this, although I don't think it would have had an effect, as gold mines, elixir collectors, and dark elixir drills can only hold so much. - 2023, Sunday, July 23rd
+- I did not get attacked since I last played. - 2023, Sunday, August 6th
+- I got attacked 3 times since I last played, 1 attack was successful, while the other 2 were only successful in stealing resources. I was surprised by how far one person got solely with super goblins, wall bombers, jump and lightning spells. The 1 successful attack was also disappointing, as the player that won was nearly 3x lower level than me (being level 54) they seem to prioritize offensives only, as their main base was a town hall 11, with every single defensive building being level 1. It doesn't seem fair how powerful level 2 electrodragons are. There is no way I can defend against them (kind of like my all-night witch builder base attacks, but those are not nearly as effective) I lost millions of units of gold and elixir. - 2023, Sunday, August 13th
+- I did not get attacked since I last played. - 2023, Sunday, August 20th
+- I got attacked once since I last played, and lost some resources, having to settle on a cheaper upgrade (mortar level 9, instead of wizard tower level 9) - 2023, Sunday, August 27th
+- I did not get attacked since I last played. - 2023, Sunday, September 3rd to 2023, Sunday, October 15th
+- I got attacked since I last played, but didn't lose any resources. I feel it was someone coming for sour elixir due to the Halloween update. I am just glad I didn't lose any resources. - 2023, Sunday, October 22nd
+- I got attacked a few times since I last played, and lost a significant amount of resources. I was still able to do upgrades today. - 2023, Sunday, October 29th
+- I got attacked once since I last played, and didn't lose any resources. - 2023, Sunday, November 5th
+- I did not get attacked since I last played. - 2023, Sunday, November 12th to 2023, Sunday, November 26th
+- I was attacked 3 times since I last played, but all 3 attacks were unsuccessful, and I lost limited resources. - 2023, Sunday, December 3rd
+- I did not get attacked since I last played. - 2023, Sunday, December 10th to 2023, Sunday, December 17th
+- I got attacked since I last played, and lost a significant amount of resources. I don't feel it was entirely because someone coming for sweet elixir due to the Christmas update. - 2023, Sunday, December 24th
+- I got attacked since I last played, and lost a smaller amount of resources. I don't feel it was entirely because someone coming for sweet elixir due to the Christmas update. - 2023, Sunday, December 31st
+- I did not get attacked since I last played. - 2024, Sunday, January 7th to 2024, Sunday, January 21st
+- I got attacked several times since I last played, all 4 attacks were unsuccessful, and hardly any resources were lost. - 2024, Sunday, January 28th
+- I did not get attacked since I last played. - 2024, Sunday, February 4th to 2024, Sunday, February 11th
+- I got attacked twice since I last played, both attacks were unsuccessful, and hardly any resources were lost. - 2024, Sunday, February 18th
+- I did not get attacked since I last played. - 2024, Sunday, February 25th to 2024, Sunday, March 24th
+- I got attacked once since I last played. The attack was unsuccessful The player that attacked me had the username `Mr. Krab` I was disappointed to not see an all-goblin attack (it would have failed, my base simply does too much splash damage, but sending in a single archer queen is failing as well) - 2024, Sunday, March 31st
+- I did not get attacked since I last played. - 2024, Sunday, April 7th to 2024, Sunday, April 21st
+- I got attacked 6 times since I last played. Most attacks were successful, and I lost a lot of resources. I need to focus on air defense. - 2024, Sunday April 28th
+- I did not get attacked since I last played. - 2024, Sunday, May 5th to 2024, Sunday, May 26th
+- I got attacked 8 times since I last played, most attacks were successful, so I lost a lot of resources. Surprisingly, I was still able to do upgrades this week. - 2024, Sunday, June 2nd
+- I did not get attacked since I last played. - 2024, Sunday, June 9th to 2024, Sunday, June 16th
+- I was attacked once since I last played. The attack was successful, but I didn't lose very many resources. - 2024, Sunday, June 23rd
+- I did not get attacked since I last played. - 2024, Sunday, June 30th to 2024, Sunday, July 28th
+- I was attacked once since I last played. The attack was unsuccessful. It was just an attack that utilized a single barbarian king. - 2024, Sunday, August 4th
+- I did not get attacked since I last played. - 2024, Sunday, August 11th to 2025, Sunday, January 19th
+- I was attacked 3 times since I last played. The attacks were relatively strong, but none of them reached or surpassed 60% overall destruction, although I still lost resources. My base handled surprising well against these 3 attacks, in one attack, my overall air defense managed to take out 12 dragons within a minute. Resource storages are immune to spell damage, but unfortunately resource collectors are not, and this is why I lost close to a million gold.
+- I did not get attacked since I last played. - 2025, Sunday, February 2nd to 2025, Sunday, March 23rd
+- I was attacked 4 times since I last played. 2 attacks were successful, while 2 were defenses. I later visited the bases of those who attacked me. 2 bases were clearly rushed (several buildings were below level 5, while the town hall was level 11) 1 could have been someone who recently reached town hall 11, while 1 was a maxed town hall 13 player. - 2025, Sunday, March 30th
+- I did not get attacked since I last played. - 2025, Sunday, April 6th
+- I was attacked 3 times since I last played, all 3 attacks were successful, with no defenses. I mainly lost a lot of dark elixir, but was still able to do the upgrade I wanted to do today. - 2025, Sunday, April 13th
+- I did not get attacked since I last played. - 2025, Sunday, April 20th to 2025, Sunday, April 27th
+- I was attacked once since I last played. Luckily, I had spent the majority of my resources before quitting last week, so not much could be lost. Somehow, an attack with a single level 30 Archer Queen with no support troops or spells managed to destroy 16% of my village, with very minimal resource losses (9,060 gold, 4,532 elixir) - 2025, Sunday, May 4th
+- I did not get attacked since I last played. - 2025, Sunday, May 11th to 2025, Sunday, June 8th
+- I was attacked 4 times since I last played, although the game only listed 1 attack in the welcome back prompt, and 3 in notifications. All attacks were losses, although none of them were 3 star attacks, and they all came from rushed bases with a player level below 100. - 2025, Sunday, June 15th
+- I was attacked 5 times since I last played, although the game only listed 1 attack in the welcome back prompt. All attacks were losses, although only 1 of them was a 3 star attack. - 2025, Sunday, June 22nd
+- I did not get attacked since I last played. - 2025, Sunday, June 29th to 2025, Sunday, July 6th
+- I was attacked 4 times since I last played, although the game only listed 1 attack in the welcome back prompt. 3 of the attacks were losses, and 1 of them was a defnese, although none of them were 3 star attacks. - 2025, Sunday, July 13th
+- I was attacked 9 times since I last played, and lost significant resources I received 1-2 notifications every day this week relating to a raid on my village, and this was the most I have ever been attacked in a 1 week period. The in-game welcome back message only showed 1 raid - 2025, Sunday, July 20th
+- I was attacked 3 times since I last played, and lost some resources. Due to this, there were some upgrades that I couldn't get to with the elixir instead, so I spent some elixir on wall upgrades today. - 2025, Sunday, July 27th
+- I was attacked 3 times since I last played, and lost some resources. Due to an ongoing resource event, where gold, elixir, and dark elixir production was doubled, this had little impact, and I was still able to do the upgrades I wanted, plus some. - 2025, Sunday, August 3rd
+- I did not get attacked since I last played. - 2025, Sunday, August 10th to 2025, Sunday, August 17th
+- I was attacked twice since I last played, one attack was successful, while the other was a defense. I lost significant resources from both attacks. - 2025, Sunday, August 24th
+- I was attacked 9 times since I last played, 3 attacks were successful, while the other 6 were defenses. I lost significant resources from both attacks, and was unable to do any laboratory upgrades this week. - 2025, Sunday, August 31st
+- I was attacked 12 times since I last played, 6 attacks were successful, while the other 6 were defenses. I lost significant resources from the 12 attacks, and wasn't able to do any elixir laboratory upgrades, although I wasn't anticipating it regardless. This situation is starting to become like Boom Beach, where I lose more resources than I can comfortably. - 2025, Sunday, September 7th
+- I was attacked 6 times since I last played, 4 attacks were successful, while the other 2 were defenses. I lost significant resources from the attacks, but still had enough elixir to do a laboratory upgrade, although I decided to upgrade walls instead. - 2025, Sunday, September 14th
+- I was attacked 1 time since I last played, the attacks were successful, but I didn't lose very many resources. - 2025, Sunday, September 21st
+- I was attacked 4 times since I last played, the attacks were successful, but I didn't lose too many resources. - 2025, Sunday, September 28th
+- I did not get attacked since I last played. - 2025, Sunday, October 5th
+- I was attacked 4 times since I last played, 2 of the attacks were successful, and I lost significant resources. - 2025, Sunday, October 12th
+- I was attacked 6 times since I last played, 6 of the attacks were successful, and I lost significant resources. - 2025, Sunday, October 19th
+
+</details>
+
+- I was attacked many times since I last played, and I lost significant resources. - 2025, Sunday, October 26th to 2025, Sunday, November 16th
+
+***
+
+### Gems
+
+**Gem count (2025.11.16):** `13,578` <!-- Do not add commas to this value !-->
+
+<details><summary><p>Click/tap here to expand/collapse older entries</p></summary>
+
+- I reached 3000+ gems. - 2022, Sunday, October 30th
+- I reached 3100+ gems. - 2022, Sunday, November 6th
+- I reached 3168 gems by the end of my session. - 2022, Sunday, November 13th
+- I reached 3200+ gems. - 2022, Sunday, November 20th
+- I reached 3218 gems by the end of my session. - 2022, Sunday, November 20th
+- I reached 3289 gems by the end of my session. - 2022, Sunday, November 27th
+- I reached 3300+ gems. - 2022, Sunday, December 4th
+- I reached 3332 gems by the end of my session. - 2022, Sunday, December 4th
+- I reached 3395 gems by the end of my session. - 2022, Sunday, December 11th
+- I reached 3400+ gems. - 2022, Sunday, December 18th
+- I reached 3460 gems by the end of my session. - 2022, Sunday, December 18th
+- I reached 3500+ gems. - 2022, Sunday, December 25th
+- I reached 3521 gems by the end of my session. - 2022, Sunday, December 25th
+- I reached 3561 gems by the end of my session. - 2023, Sunday, January 1st
+- I reached 3600+ gems. - 2023, Sunday, January 8th
+- I reached 3623 gems by the end of my session. - 2023, Sunday, January 8th
+- I reached 3700+ gems. - 2023, Sunday, January 15th
+- I reached 3707 gems by the end of my session. - 2023, Sunday, January 15th
+- I reached 3744 gems by the end of my session. - 2023, Sunday, January 22nd
+- I reached 3800+ gems. - 2023, Sunday, January 29th
+- I reached 3808 gems by the end of my session. - 2023, Sunday, January 29th
+- I reached 3870 gems by the end of my session. - 2023, Sunday, February 5th
+- I reached 3900+ gems. - 2023, Sunday, February 12th
+- I reached 3925 gems by the end of my session. - 2023, Sunday, February 12th
+- I reached 4000+ gems. - 2023, Sunday, February 19th
+- I reached 4017 gems by the end of my session. - 2023, Sunday, February 19th
+- I reached 4081 gems by the end of my session. - 2023, Sunday, February 26th
+- I reached 4100+ gems. - 2023, Sunday, March 5th
+- I reached 4134 gems by the end of my session. - 2023, Sunday, March 5th
+- I reached 4200+ gems. - 2023, Sunday, March 12th
+- I reached 4229 gems by the end of my session. - 2023, Sunday, March 12th
+- I reached 4300+ gems. - 2023, Sunday, March 19th
+- I reached 4309 gems by the end of my session. - 2023, Sunday, March 19th
+- I reached 4358 gems by the end of my session. - 2023, Sunday, March 26th
+- I reached 4400+ gems. - 2023, Sunday, April 2nd
+- I reached 4428 gems by the end of my session. - 2023, Sunday, April 2nd
+- I reached 4500+ gems. - 2023, Sunday, April 9th
+- I reached 4504 gems by the end of my session. - 2023, Sunday, April 9th
+- I reached 4552 gems by the end of my session. - 2023, Sunday, April 16th
+- I reached 4600+ gems. - 2023, Sunday, April 23rd
+- I reached 4615 gems by the end of my session. - 2023, Sunday, April 23rd
+- I reached 4665 gems by the end of my session. - 2023, Sunday, April 30th
+- I reached 4700+ gems. - 2023, Sunday, May 7th
+- I reached 4731 gems by the end of my session. - 2023, Sunday, May 7th
+- I reached 4774 gems by the end of my session. - 2023, Sunday, May 14th
+- I reached 4800+ gems. - 2023, Sunday, May 21st
+- I reached 4828 gems by the end of my session. - 2023, Sunday, May 21st
+- I reached 4892 gems by the end of my session. - 2023, Sunday, May 28th
+- I reached 4900+ gems. - 2023, Sunday, June 4th
+- I reached 4943 gems by the end of my session. - 2023, Sunday, June 4th
+- I reached 5000+ gems. - 2023, Sunday, June 11th
+- I reached 5026 gems by the end of my session. - 2023, Sunday, June 11th
+- I reached 5071 gems by the end of my session. - 2023, Sunday, June 18th
+- I reached 5100+ gems. - 2023, Sunday, June 11th
+- I reached 5115 gems by the end of my session. - 2023, Sunday, June 25th
+- I reached 5148 gems by the end of my session. - 2023, Sunday, July 2nd
+- I reached 5200+ gems. - 2023, Sunday, July 9th
+- I reached 5300+ gems. - 2023, Sunday, July 9th
+- I reached 5332 gems by the end of my session. - 2023, Sunday, July 9th
+- I reached 5392 gems by the end of my session. - 2023, Sunday, July 16th
+- I reached 5400+ gems. - 2023, Sunday, July 23rd
+- I reached 5435 gems by the end of my session. - 2023, Sunday, July 23rd
+- I reached 5500+ gems. - 2023, Sunday, July 30th
+- I reached 5509 gems by the end of my session. - 2023, Sunday, July 30th
+- I reached 5577 gems by the end of my session. - 2023, Sunday, August 6th
+- I reached 5600+ gems. - 2023, Sunday, August 13th
+- I reached 5647 gems by the end of my session. - 2023, Sunday, August 13th
+- I reached 5700+ gems. - 2023, Sunday, August 20th
+- I reached 5710 gems by the end of my session. - 2023, Sunday, August 20th
+- I reached 5776 gems by the end of my session. - 2023, Sunday, August 27th
+- I reached 5800+ gems. - 2023, Sunday, September 3rd
+- I reached 5868 gems by the end of my session. - 2023, Sunday, September 3rd
+- I reached 5899 gems by the end of my session. I was so close to 5900. - 2023, Sunday, September 10th
+- I reached 5900+ gems. - 2023, Sunday, September 17th
+- I reached 6000+ gems. - 2023, Sunday, September 17th
+- I reached 6001 gems by the end of my session. - 2023, Sunday, September 17th
+- I reached 6070 gems by the end of my session. - 2023, Sunday, September 24th
+- I reached 6100+ gems. - 2023, Sunday, October 1st
+- I reached 6119 gems by the end of my session. - 2023, Sunday, October 1st
+- I reached 6200+ gems. - 2023, Sunday, October 8th
+- I reached 6225 gems by the end of my session. - 2023, Sunday, October 8th
+- I reached 6287 gems by the end of my session. - 2023, Sunday, October 15th
+- I reached 6300+ gems. - 2023, Sunday, October 22nd
+- I reached 6336 gems by the end of my session. - 2023, Sunday, October 22nd
+- I reached 6400+ gems. - 2023, Sunday, October 29th
+- I reached 6405 gems by the end of my session. - 2023, Sunday, October 29th
+- I reached 6500+ gems. - 2023, Sunday, November 5th
+- I reached 6511 gems by the end of my session. - 2023, Sunday, November 5th
+- I reached 6548 gems by the end of my session. - 2023, Sunday, November 12th
+- I reached 6600+ gems. - 2023, Sunday, November 19th
+- I reached 6614 gems by the end of my session. - 2023, Sunday, November 19th
+- I reached 6661 gems by the end of my session. - 2023, Sunday, November 26th
+- I reached 6700+ gems. - 2023, Sunday, December 3rd
+- I reached 6726 gems by the end of my session. - 2023, Sunday, December 3rd
+- I reached 6800+ gems. - 2023, Sunday, December 10th
+- I reached 6809 gems by the end of my session. - 2023, Sunday, December 10th
+- I reached 6865 gems by the end of my session. - 2023, Sunday, December 17th
+- I reached 6900+ gems. - 2023, Sunday, December 24th
+- I reached 6927 gems by the end of my session. - 2023, Sunday, December 24th
+- I reached 6966 gems by the end of my session. - 2023, Sunday, December 31st
+- I reached 7000+ gems. - 2024, Sunday, January 7th
+- I reached 7046 gems by the end of my session. - 2024, Sunday, January 7th
+- I reached 7100+ gems. - 2024, Sunday, January 14th
+- I reached 7110 gems by the end of my session. - 2024, Sunday, January 14th
+- I reached 7177 gems by the end of my session. - 2024, Sunday, January 21st
+- I reached 7200+ gems. - 2024, Sunday, January 28th
+- I reached 7230 gems by the end of my session. - 2024, Sunday, January 28th
+- I reached 7300+ gems. - 2024, Sunday, February 4th
+- I reached 7316 gems by the end of my session. - 2024, Sunday, February 4th
+- I reached 7386 gems by the end of my session. - 2024, Sunday, February 11th
+- I reached 7400+ gems. - 2024, Sunday, February 18th
+- I reached 7447 gems by the end of my session. - 2024, Sunday, February 18th
+- I reached 7500+ gems. - 2024, Sunday, February 25th
+- I reached 7509 gems by the end of my session. - 2024, Sunday, February 25th
+- I reached 7562 gems by the end of my session. - 2024, Sunday, March 3rd
+- I reached 7600+ gems. - 2024, Sunday, March 10th
+- I reached 7646 gems by the end of my session. - 2024, Sunday, March 10th
+- I reached 7699 gems by the end of my session. - 2024, Sunday, March 17th
+- I reached 7700+ gems by the end of my session. - 2024, Sunday, March 24th
+- I reached 7762 gems by the end of my session. - 2024, Sunday, March 24th
+- I reached 7800+ gems by the end of my session. - 2024, Sunday, March 31st
+- I reached 7815 gems by the end of my session. - 2024, Sunday, March 31st
+- I reached 7868 gems by the end of my session. - 2024, Sunday, April 7th
+- I reached 7900+ gems by the end of my session. - 2024, Sunday, April 14th
+- I reached 7923 gems by the end of my session. - 2024, Sunday, April 14th
+- I reached 7988 gems by the end of my session. I am really close to 8000 gems being saved up. - 2024, Sunday, April 21st
+- I reached 8000+ gems by the end of my session. - 2024, Sunday, April 28th
+- I reached 8059 gems by the end of my session. - 2024, Sunday, April 28th
+- I reached 8100+ gems by the end of my session. - 2024, Sunday, May 5th
+- I reached 8124 gems by the end of my session. - 2024, Sunday, May 5th
+- I reached 8200+ gems by the end of my session. - 2024, Sunday, May 12th
+- I reached 8229 gems by the end of my session. - 2024, Sunday, May 12th
+- I reached 8289 gems by the end of my session. - 2024, Sunday, May 19th
+- I reached 8300+ gems by the end of my session. - 2024, Sunday, May 26th
+- I reached 8354 gems by the end of my session. I am starting to get close to 10,000 gems. - 2024, Sunday, May 26th
+- I reached 8400+ gems by the end of my session. - 2024, Sunday, June 2nd
+- I reached 8419 gems by the end of my session. I am starting to get close to 10,000 gems. - 2024, Sunday, June 2nd
+- I reached 8500+ gems by the end of my session. - 2024, Sunday, June 9th
+- I reached 8504 gems by the end of my session. I am starting to get close to 10,000 gems. - 2024, Sunday, June 9th
+- I reached 8569 gems by the end of my session. I am starting to get close to 10,000 gems. - 2024, Sunday, June 16th
+- I reached 8600+ gems by the end of my session. - 2024, Sunday, June 23rd
+- I reached 8629 gems by the end of my session. I am starting to get close to 10,000 gems. - 2024, Sunday, June 23rd
+- I reached 8700+ gems by the end of my session. - 2024, Sunday, June 30th
+- I reached 8704 gems by the end of my session. I am starting to get close to 10,000 gems. - 2024, Sunday, June 30th
+- I reached 8800+ gems by the end of my session. - 2024, Sunday, July 7th
+- I reached 8809 gems by the end of my session. I am starting to get close to 10,000 gems. - 2024, Sunday, July 7th
+- I reached 8849 gems by the end of my session. I am starting to get close to 10,000 gems. - 2024, Sunday, July 14th
+- I reached 8900+ gems by the end of my session. - 2024, Sunday, July 21st
+- I reached 8914 gems by the end of my session. I am starting to get close to 10,000 gems. - 2024, Sunday, July 21st
+- I reached 8989 gems by the end of my session. I am starting to get close to 10,000 gems. - 2024, Sunday, July 28th
+- I reached 9000+ gems by the end of my session. - 2024, Sunday, August 4th
+- I reached 9098 gems by the end of my session. I am starting to get close to 10,000 gems. I will definitely reach and surpass 10,000 gems by the end of the year. - 2024, Sunday, August 4th
+- I reached 9100+ gems by the end of my session. - 2024, Sunday, August 11th
+- I reached 9134 gems by the end of my session. I am starting to get close to 10,000 gems. I will definitely reach and surpass 10,000 gems by the end of the year. - 2024, Sunday, August 11th
+- I reached 9200+ gems by the end of my session. - 2024, Sunday, August 18th
+- I reached 9209 gems by the end of my session. I am starting to get close to 10,000 gems. I will definitely reach and surpass 10,000 gems by the end of the year. - 2024, Sunday, August 18th
+- I reached 9274 gems by the end of my session. I am starting to get close to 10,000 gems. I will definitely reach and surpass 10,000 gems by the end of the year. - 2024, Sunday, August 25th
+- I reached 9300+ gems by the end of my session. - 2024, Sunday, September 1st
+- I reached 9344 gems by the end of my session. I am starting to get close to 10,000 gems. I will definitely reach and surpass 10,000 gems by the end of the year, although I am a little skeptical about it now. - 2024, Sunday, September 1st
+- I reached 9400+ gems by the end of my session. - 2024, Sunday, September 8th
+- I reached 9409 gems by the end of my session. I am starting to get close to 10,000 gems. I will definitely reach and surpass 10,000 gems by the end of the year, although I am a little skeptical about it now. - 2024, Sunday, September 8th
+- I reached 9404 gems by the end of my session. I am starting to get close to 10,000 gems. I am not sure I will reach and surpass 10,000 gems by the end of the year, at the current rate. - 2024, Sunday, September 15th
+- I reached 9500+ gems by the end of my session. - 2024, Sunday, September 22nd
+- I reached 9514 gems by the end of my session. - 2024, Sunday, September 22nd
+- I reached 9576 gems by the end of my session. - 2024, Sunday, September 29th
+- I reached 9600+ gems by the end of my session. - 2024, Sunday, October 6th
+- I reached 9635 gems by the end of my session. - 2024, Sunday, October 6th
+- I reached 9700+ gems by the end of my session. - 2024, Sunday, October 13th
+- I reached 9761 gems by the end of my session. - 2024, Sunday, October 13th
+- I reached 9800+ gems by the end of my session. - 2024, Sunday, October 20th
+- I reached 9825 gems by the end of my session. - 2024, Sunday, October 20th
+- I reached 9889 gems by the end of my session. - 2024, Sunday, October 27th
+- I reached 9900+ gems by the end of my session. - 2024, Sunday, November 3rd
+- I reached 10000+ gems by the end of my session. - 2024, Sunday, November 3rd
+- I reached 10004 gems by the end of my session. - 2024, Sunday, November 3rd
+- I reached 10069 gems by the end of my session. - 2024, Sunday, November 10th
+- I reached 10100+ gems by the end of my session. - 2024, Sunday, November 17th
+- I reached 10119 gems by the end of my session. - 2024, Sunday, November 17th
+- I reached 10200+ gems by the end of my session. - 2024, Sunday, November 24th
+- I reached 10204 gems by the end of my session. - 2024, Sunday, November 24th
+- I reached 10279 gems by the end of my session. - 2024, Sunday, December 1st
+- I reached 10300+ gems by the end of my session. - 2024, Sunday, December 8th
+- I reached 10359 gems by the end of my session. - 2024, Sunday, December 8th
+- I reached 10400+ gems by the end of my session. - 2024, Sunday, December 15th
+- I reached 10434 gems by the end of my session. - 2024, Sunday, December 15th
+- I reached 10494 gems by the end of my session. - 2024, Sunday, December 22nd
+- I reached 10500+ gems by the end of my session. - 2024, Sunday, December 29th
+- I reached 10559 gems by the end of my session. - 2024, Sunday, December 29th
+- I reached 10600+ gems by the end of my session. - 2025, Sunday, January 5th
+- I reached 10654 gems by the end of my session. - 2025, Sunday, January 5th
+- I reached 10700+ gems by the end of my session. - 2025, Sunday, January 12th
+- I reached 10719 gems by the end of my session. - 2025, Sunday, January 12th
+- I reached 10759 gems by the end of my session. - 2025, Sunday, January 19th
+- I reached 10800+ gems by the end of my session. - 2025, Sunday, January 26th
+- I reached 10854 gems by the end of my session. - 2025, Sunday, January 26th
+- I reached 10900+ gems by the end of my session. - 2025, Sunday, February 2nd
+- I reached 10949 gems by the end of my session. - 2025, Sunday, February 2nd
+- I reached 11000+ gems by the end of my session. - 2025, Sunday, February 9th
+- I reached 11014 gems by the end of my session. - 2025, Sunday, February 9th
+- I reached 11064 gems by the end of my session. - 2025, Sunday, February 16th
+- I reached 11100+ gems by the end of my session. - 2025, Sunday, February 23rd
+- I reached 11099 gems by the end of my session. - 2025, Sunday, February 23rd
+- I reached 11200+ gems by the end of my session. - 2025, Sunday, March 2nd
+- I reached 11300+ gems by the end of my session. - 2025, Sunday, March 2nd
+- I reached 11304 gems by the end of my session. - 2025, Sunday, March 2nd
+- I reached 11344 gems by the end of my session. - 2025, Sunday, March 9th
+- I reached 11400+ gems by the end of my session. - 2025, Sunday, March 16th
+- I reached 11409 gems by the end of my session. - 2025, Sunday, March 16th
+- I reached 11490 gems by the end of my session. - 2025, Sunday, March 23rd
+- I reached 11500+ gems by the end of my session. - 2025, Sunday, March 30th
+- I reached 11600+ gems by the end of my session. - 2025, Sunday, March 30th
+- I reached 11616 gems by the end of my session. - 2025, Sunday, March 30th
+- I reached 11700+ gems by the end of my session. - 2025, Sunday, April 6th
+- I reached 11710 gems by the end of my session. - 2025, Sunday, April 6th
+- I reached 11751 gems by the end of my session. - 2025, Sunday, April 13th
+- I reached 11800+ gems by the end of my session. - 2025, Sunday, April 20th
+- I reached 11845 gems by the end of my session. - 2025, Sunday, April 20th
+- I reached 11900+ gems by the end of my session. - 2025, Sunday, April 27th
+- I reached 11911 gems by the end of my session. - 2025, Sunday, April 27th
+- I reached 11975 gems by the end of my session. - 2025, Sunday, May 4th
+- I reached 12000+ gems by the end of my session. - 2025, Sunday, May 11th
+- I reached 12027 gems by the end of my session. - 2025, Sunday, May 11th
+- I reached 12100+ gems by the end of my session. - 2025, Sunday, May 18th
+- I reached 12101 gems by the end of my session. - 2025, Sunday, May 18th
+- I reached 12151 gems by the end of my session. - 2025, Sunday, May 25th
+- I reached 12200+ gems by the end of my session. - 2025, Sunday, June 1st
+- I reached 12210 gems by the end of my session. - 2025, Sunday, June 1st
+- I reached 12276 gems by the end of my session. - 2025, Sunday, June 8th
+- I reached 12300+ gems by the end of my session. - 2025, Sunday, June 15th
+- I reached 12309 gems by the end of my session. - 2025, Sunday, June 15th
+- I reached 12400+ gems by the end of my session. - 2025, Sunday, June 22nd
+- I reached 12416 gems by the end of my session. - 2025, Sunday, June 22nd
+- I reached 12489 gems by the end of my session. - 2025, Sunday, June 29th
+- I reached 12500+ gems by the end of my session. - 2025, Sunday, July 6th
+- I reached 12535 gems by the end of my session. - 2025, Sunday, July 6th
+- I reached 12600+ gems by the end of my session. - 2025, Sunday, July 13th
+- I reached 12607 gems by the end of my session. - 2025, Sunday, July 13th
+- I reached 12660 gems by the end of my session. - 2025, Sunday, July 20th
+- I reached 12700+ gems by the end of my session. - 2025, Sunday, July 27th
+- I reached 12756 gems by the end of my session. - 2025, Sunday, July 27th
+- I reached 12800+ gems by the end of my session. - 2025, Sunday, August 3rd
+- I reached 12814 gems by the end of my session. - 2025, Sunday, August 3rd
+- I reached 12899 gems by the end of my session. - 2025, Sunday, August 10th
+- I reached 12900+ gems by the end of my session. - 2025, Sunday, August 17th
+- I reached 12944 gems by the end of my session. - 2025, Sunday, August 17th
+- I reached 13000+ gems by the end of my session. - 2025, Sunday, August 24th
+- I reached 13020 gems by the end of my session. - 2025, Sunday, August 24th
+- I reached 13055 gems by the end of my session. - 2025, Sunday, August 31st
+- I reached 13100+ gems by the end of my session. - 2025, Sunday, September 7th
+- I reached 13146 gems by the end of my session. - 2025, Sunday, September 7th
+- I reached 13200+ gems by the end of my session. - 2025, Sunday, September 14th
+- I reached 13232 gems by the end of my session. - 2025, Sunday, September 14th
+- I reached 13275 gems by the end of my session. - 2025, Sunday, September 21st
+- I reached 13300+ gems by the end of my session. - 2025, Sunday, September 28th
+- I reached 13362 gems by the end of my session. - 2025, Sunday, September 28th
+- I peaked at 13,384 gems this week, before spending gems on shields, and only making it back to 13,069 gems by the end of my session. - 2025, Sunday, October 5th
+- I peaked at 13,107 gems this week, before spending gems on an alchemist, and only making it back to 12,876 gems by the end of my session. - 2025, Sunday, October 12th
+- I reached 13054 gems by the end of my session. - 2025, Sunday, October 19th
+- I reached 13000+ gems by the end of my session. - 2025, Sunday, October 19th
+- I reached 13100+ gems by the end of my session. - 2025, Sunday, October 26th
+- I reached 13200+ gems by the end of my session. - 2025, Sunday, October 26th
+- I reached 13237 gems by the end of my session. - 2025, Sunday, October 26th
+- I reached 13300+ gems by the end of my session. - 2025, Sunday, November 2nd
+- I reached 13394 gems by the end of my session. - 2025, Sunday, November 2nd
+- I reached 13400+ gems by the end of my session. - 2025, Sunday, November 9th
+- I reached 13487 gems by the end of my session. - 2025, Sunday, November 9th
+
+</details>
+
+- I reached 13500+ gems by the end of my session. - 2025, Sunday, November 16th
+- I reached 13578 gems by the end of my session. - 2025, Sunday, November 16th
+
+***
+
+## Builder base
+
+<details><summary><p>Click/tap here to expand/collapse older entries</p></summary>
+
+### 2021, Sunday. October 17th and below
+
+Unavailable in this README version.
+
+### 2021, Sunday, October 24th
+
+Today in the builder base, I did a lot worse, and it took me a while to get 6 wins. After getting 6 wins, I upgraded my builder barracks to level 11 for 2,000,000 elixir. It will unlock the hog glider, which I may try out. I just wanted to do an upgrade today. Next week, I will be upgrading my multi-mortar to level 8 for 3.5 million gold. - 2021 Sunday October 24th
+
+### 2021, Sunday, October 31st
+
+Today in the builder base, I did really well, getting 3 3 star attacks in a row, but after that, it took me a while to get 6 wins. After getting 6 wins, I upgraded my multi-mortar to level 8 for 3.5 million gold. - 2021 Sunday October 31st
+
+### 2021, Sunday, November 7th
+
+Today in the builder base, I did well, taking me a while to get 6 wins. After getting 6 wins, I upgraded my elixir to level 9 for 2.5 million gold. - 2021 Sunday November 7th
+
+### 2021, Sunday, November 14th
+
+Today in the builder base, I did a lot worse, and it took me a while to get 6 wins. After getting 6 wins, I upgraded my battle machine to level 22 for 3.2 million elixir. I am just upgrading it to see if it can get at all better, and so I can unlock O.T.T.O. I have come to the conclusion that the Battle Machine is the worst hero in the game, as it always goes out of its way to kill itself, either going directly to a crusher, or walking through 6 buildings and getting shot 200 times, then dying without hitting anything. It still is decent in some ways (it is better than nothing) but I still consider it the worst hero to have. - 2021 Sunday November 14th
+
+### 2021, Sunday, November 21st
+
+Today in the builder base, I did well, and it didn't take very long to get 6 wins, as I had multiple trophy droppers go against me in a row. Whenever I see a completely maxed out base, I assume that it is someone dropping down. This hasn't failed me yet. Whenever I try it, it never works, but when others do, it does. Last tim I tried to just deploy the battle machine and surrender, it ended in a draw. I don't get it. Once I was done with battles, I upgraded a hidden mine to level 9 for 500,000 gold. - 2021 Sunday November 21st
+
+### 2021, Sunday, November 28th
+
+Today in the builder base, I did well, and it took a little while to get to 6 wins. On one attack, I managed to destroy a nearly maxed out base. I upgraded a hidden mine to level 9 for 500,000 gold again before quitting, with 2 left after this one. - 2021 Sunday November 28th
+
+### 2021, Sunday, December 5th
+
+Today in the builder base, I did well, and it took a little while to get to 6 wins. I upgraded my battle machine to level 23 for 3.3 million elixir before quitting - 2021, Sunday, December 5th
+
+### 2021, Sunday, December 12th
+
+Today in the builder base, I did well, and it took a little while to get to 6 wins. I upgraded my mega tesla to level 8 for 4 million gold. - 2021 Sunday, December 12th
+
+### 2021, Sunday, December 19th
+
+Today in the builder base, I did well, and it took less time to get to 6 wins. I upgraded my hidden bomb to level 9 for 0.5 million gold, as I was saving up for the max level Mega Tesla and the level 24 battle machine, but couldn't afford either, and had to upgrade something. - 2021 Sunday, December 19th
+
+### 2021, Sunday, December 26th
+
+Today in the builder base, I did poorly, and it took over 30 minutes to get to 6 wins. I cleaned up some obstacles, then upgraded my battle machine to level 24 afterwards. - 2021 Sunday, December 26th
+
+### 2022, Sunday, January 2nd
+
+Today in the builder base, I did better, and it took less than 25 minutes to get to 6 wins. I cleaned up some obstacles, then upgraded a hidden bomb to level 9 for 500,000 coins afterwards, as I couldn't afford to upgrade anything else. - 2022 Sunday, January 2nd
+
+### 2022, Sunday, January 9th
+
+Today in the builder base, I did better, and it took less than 15 minutes to get to 6 wins. I cleaned up some obstacles, then upgraded a hidden bomb to level 9 for 500,000 coins afterwards, as I couldn't afford to upgrade anything else. This was the last cheapest upgrade I could do. I almost have all hidden traps maxed out (excluding teslas) - 2022 Sunday, January 9th
+
+### 2022, Sunday, January 16th
+
+Today in the builder base, I did better, and it took less than 15 minutes to get to 6 wins. I cleaned up some obstacles, then upgraded my battle machine to level 25 for 3.5 million elixir. I plan to upgrade my mega tesla to level 9 next week. - 2022 Sunday, January 16th
+
+### 2022, Sunday, January 23rd
+
+Today in the builder base, I did a lot worse, and it took over 32 minutes to get to 6 wins. I upgraded my mega tesla to level 9 before starting to battle. - 2022 Sunday, January 23rd
+
+### 2022, Sunday, January 30th
+
+Today in the builder base, I did a bit better. It took over 23 minutes to get to 6 wins. I upgraded a giant bomb to level 7 for 600,000 gold before quitting, as I couldn't afford a preferred upgrade (lava launcher level 3) - 2022 Sunday, January 30th
+
+### 2022, Sunday, February 6th
+
+Today in the builder base, I did a bit better. It took over 20 minutes to get to 6 wins. I began upgrading a lava launcher to level 3 before quitting. - 2022 Sunday, February 6th
+
+### 2022, Sunday, February 13th
+
+Today in the builder base, I did a lot worse. It took over 30 minutes to get to 6 wins. I began upgrading my battle machine to level 26 before quitting. - 2022 Sunday, February 13th
+
+### 2022, Sunday, February 20th
+
+Today in the builder base, I did a lot better. It took less than 25 minutes to get to 6 wins. I began upgrading a giant bomb to level 8 for 1 million gold before quitting. - 2022 Sunday, February 20th
+
+### 2022, Sunday, February 27th
+
+Today in the builder base, I did a lot better. It took less than 25 minutes to get to 6 wins. I began upgrading a giant bomb to level 8 for 1 million gold before quitting. - 2022 Sunday, February 27th
+
+### 2022, Sunday, March 6th
+
+Today in the builder base, I did a lot better. It took less than 25 minutes to get to 6 wins. I forgot to activate my clock tower early on however. I made it very close to 3000 trophies, then suffered a series of losses before I got the rest of my 6 wins for today. I also began upgrading my battle machine to level 27 for 3.7 million elixir. I have been planning on upgrading my night witch to level 17 after I max out my battle machine. - 2022 Sunday, March 6th
+
+### 2022, Sunday, March 13th
+
+Today in the builder base, I did a lot better, but also really poorly. It took less than 25 minutes to get to 6 wins. I remembered to activate my clock tower early on. I received constant losses today, and somehow got exactly 50% on multiple battles in a row I also began upgrading a giant bomb to level 8 for 1 million gold, as I had to upgrade something, and I really didn't know what to upgrade. - 2022 Sunday, March 13th
+
+### 2022, Sunday, March 20th
+
+Today in the builder base, I did decently, but also really poorly. It took 28 minutes to get to 6 wins. I remembered to activate my clock tower early on. I received constant losses today, I didn't make it back to the 2800 trophy range today. I began upgrading a firecracker launcher to level 6 for 1.2 million gold, it is an upgrade I have been putting off for a really long time. I plan on maxing out my battle machine and night witches next, and do normal/random gold upgrades in the meantime. - 2022 Sunday, March 20th
+
+### 2022, Sunday, March 27th
+
+Today in the builder base, I did really well. It took less than 14 minutes to get to 6 wins. I remembered to activate my clock tower early on. I received a few losses, then received 5 wins in a row. I made it well back into the 2800 trophy range today. I began upgrading a hidden tesla to level 6 today. I plan on maxing out my battle machine and night witches next, and do normal/random gold upgrades in the meantime. - 2022 Sunday, March 27th
+
+### 2022, Sunday, April 3rd
+
+Today in the builder base, I did pretty well. It took less than 20 minutes to get to 6 wins. I remembered to activate my clock tower early on. I stayed in the 2800 trophy range today. I began upgrading my battle machine to level 28 for 3.8 million elixir. I plan to max the battle machine and night witches next, and do normal/random gold upgrades in the meantime. - 2022 Sunday, April 3rd
+
+### 2022, Sunday, April 10th
+
+Today in the builder base, I did pretty well. It took more than 20 minutes to get to 6 wins. I remembered to activate my clock tower early on. I stayed in the 2900 trophy range today. I began upgrading my scorcher to level 4 for 3.4 million gold. I plan to max the battle machine and night witches next, and do normal/random gold upgrades in the meantime. I spent extra time waiting to stock up resources for the upgrade. - 2022 Sunday, April 10th
+
+### 2022, Sunday, April 17th
+
+Today in the builder base, I did pretty well. It took less than 20 minutes to get to 6 wins. I remembered to activate my clock tower early on. I stayed in the 2900 trophy range today, but dropped below it for a while before getting back up. I began upgrading my mega mine to level 8 for 1 million gold. I plan to max the battle machine and night witches next, and do normal/random gold upgrades in the meantime. I also cleaned up some obstalces today. - 2022 Sunday, April 17th
+
+### 2022, Sunday, April 26th
+
+Today in the builder base, I did pretty well. It took less than 20 minutes to get to 6 wins. I remembered to activate my clock tower early on. I stayed in the 2900 trophy range today, but dropped below it for a while before getting back up. I began upgrading my battle machine to level 29 for 3.9 million elixir. - 2022 Sunday, April 26th
+
+### 2022, Sunday, May 1st
+
+Today in the builder base, I did very poorly. It took over than 33 minutes to get to 6 wins. I remembered to activate my clock tower early on. I dropped down to the 2700-2800 trophy range today. I began upgrading a double cannon to level 2 for 2.2 million gold. - 2022 Sunday, May 1st
+
+### 2022, Sunday, May 8th
+
+Today in the builder base, I did very well. It took less than 28 minutes to get to 6 wins. I remembered to activate my clock tower early on. I rose up to 2840 trophies today. I did not do any upgrades in the builder base today, as I was using the master builder in the main village.  - 2022 Sunday, May 8th
+
+### 2022, Sunday, May 15th
+
+Today in the builder base, I did very well. It took less than 28 minutes to get to 6 wins. I remembered to activate my clock tower early on. I dropped down to 2816 trophies today. I did not do any upgrades in the builder base today, as I was using the master builder in the main village. My next planned upgrade is to max out the battle machine for 4 million elixir (max level 30) then after that, I hope to upgrade my multi-mortar to max level 9, but I might do something else, notably the lava launcher to level 5. - 2022 Sunday, May 15th
+
+### 2022, Sunday, May 22nd
+
+Today in the builder base, I did very well. It took less than 28 minutes to get to 6 wins. I remembered to activate my clock tower early on. I rose up to 2874 trophies today. I later upgraded my battle machine to max level 30 for 4 million elixir, right after my mortar turned into a multi-mortar in the home village. After this I hope to upgrade my multi-mortar to max level 9, but I might do something else, notably the lava launcher to level 5. - 2022 Sunday, May 22nd
+
+### 2022, Sunday, May 29th
+
+Today in the builder base, I did OK. It took less than 28 minutes to get to 6 wins. I remembered to activate my clock tower early on. I dropped down to 2845 trophies today. I got to attack with a max level battle machine today, it was pretty fun, but still, its crusher target is rather annoying. I hope to max out my nightwitches soon, so I can do max troop level attacks. I upgraded my multi-mortar to max level 9 for 4.5 million gold before starting the first battle. It may have affected my success, but I couldn't have 200k+ gold be wasted due to storage overflow. After this I hope to upgrade my lava launcher to level 5, but I might do something else first instead. - 2022 Sunday, May 29th
+
+### 2022, Sunday, June 5th
+
+Today in the builder base, I did better than last. It took less than 28 minutes to get to 6 wins. I remembered to activate my clock tower early on. I rose up to 2877 trophies today. I hope to max out my nightwitches soon, so I can do max troop level attacks. I upgraded a mega mine to max level 9 for 1.4 million gold today, as I couldn't afford anything else. I might do the same next week, there are only 3 upgrades left (not including walls) that cost 2 million or less gold. After this I hope to upgrade my lava launcher to level 5, but I might do something else first instead. - 2022 Sunday, June 5th
+
+### 2022, Sunday, June 12th
+
+Today in the builder base, I did better than last week. It took less than 28 minutes to get to 6 wins. I remembered to activate my clock tower early on. I dropped down to 2847 trophies today. I hope to max out my nightwitches soon, so I can do max troop level attacks. I upgraded a second mega mine to max level 9 for 1.4 million gold today, as I couldn't afford anything else. I might do the same next week, there are only 2 upgrades left (not including walls) that cost 2 million or less gold. After this I hope to upgrade my lava launcher to level 5, but I might do something else first instead. I also upgraded my cannon cart troop to level 15 for 3.4 million elixir. - 2022 Sunday, June 12th
+
+### 2022, Sunday, June 19th
+
+Today in the builder base, I did worse than last week. It took over than 20 minutes to get to 6 wins. I remembered to activate my clock tower early on. I rose up to 2848 trophies today. I hope to max out my nightwitches soon, so I can do max troop level attacks. I was unable to afford any upgrades today. - 2022 Sunday, June 19th
+
+### 2022, Sunday, June 26th
+
+Today in the builder base, I did much better than last week. It took less than 20 minutes to get to 6 wins. I remembered to activate my clock tower early on. I rose up to 2,905 trophies today. I hope to max out my nightwitches soon, so I can do max troop level attacks. I also began upgrading a double cannon to level 7 for 2.2 million gold - 2022 Sunday, June 26th
+
+### 2022, Sunday, July 3rd
+
+Today in the builder base, I did much worse than last week. It took over 20 minutes to get to 6 wins. I forgot to activate my clock tower early on, activating it after my second builder battle win. I dropped down up to 2,870 trophies today. I hope to max out my nightwitches soon, so I can do max troop level attacks. I was not able to afford any upgrades today (other than walls, which I don't want to upgrade yet, due to the cost) - 2022 Sunday, July 3rd
+
+### 2022, Sunday, July 10th
+
+Today in the builder base, I did much worse than last week. It took over 25 minutes to get to 6 wins. I forgot to activate my clock tower early on, activating it after my first builder battle win. I rose up 1 trophy up to 2,871 trophies today. I hope to max out my nightwitches soon, so I can do max troop level attacks. I began to upgrade my night witches to level 17, along with my hidden tesla to level 7. - 2022 Sunday, July 10th
+
+### 2022, Sunday, July 17th
+
+Today in the builder base, I did much better compared last week. It took less than 25 minutes to get to 6 wins. I forgot to activate my clock tower early on, activating it after my first builder battle win. I rose up 19 trophies to 2,890 trophies today. I hope to max out my nightwitches soon, so I can do max troop level attacks. I didn't do any upgrades this week. - 2022 Sunday, July 17th
+
+### 2022, Sunday, July 24th
+
+Today in the builder base, I did much better compared last week. It took less than 25 minutes to get to 6 wins. I activated my clock tower early on, activating it before my first builder base win. I dropped down 1 trophy to 2,889 trophies today. I hope to max out my nightwitches soon, so I can do max troop level attacks. I began upgrading an archer tower to level 7 for 2 million gold. I plan to do all upgrades 2.1 million gold and below. I used a clock tower potion today to get an extra 30 minutes on the clock tower. I enjoyed exploring around during this time. - 2022 Sunday, July 24th
+
+### 2022, Sunday, July 31st
+
+Today in the builder base, I did much better compared last week. It took less than 23 minutes to get to 6 wins. I activated my clock tower early on, activating it before my first builder base win. I rose up 60 trophies to 2,949 trophies today. I hope to max out my nightwitches soon, so I can do max troop level attacks. I began upgrading a mega mine to max level 9 for 1.4 million gold. After I upgrade the last mega mine to level 9 (there is one other than this one) all my hidden traps will be max level (excluding teslas) I plan to do all upgrades 2.1 million gold and below. - 2022 Sunday, July 31st
+
+### 2022, Sunday, August 7th
+
+Today in the builder base, I did much worse compared to last week. It took over 25 minutes to get to 6 wins. I activated my clock tower early on, activating it before my first builder base win. I dropped down 25 trophies to 2,924 trophies today. I began to upgrade my night witches to max level 18 for 4.4 million elixir. I couldn't afford any non-wall gold upgrades this week. After I upgrade the last mega mine to level 9 (there is one other than this one) all my hidden traps will be max level (excluding teslas) I plan to do all upgrades 2.1 million gold and below. - 2022 Sunday, August 7th
+
+### 2022, Sunday, August 14th
+
+Today in the builder base, I did much worse compared to last week. It took over 28 minutes to get to 6 wins. I activated my clock tower early on, activating it before my first builder base win. I dropped down 83 trophies to 2,841 trophies today. I began to upgrade last mega mine to level 9. All of my my hidden traps are now max level (excluding teslas) I plan to do all upgrades 2.1 million gold and below. - 2022 Sunday, August 14th
+
+### 2022, Sunday, August 21st
+
+Today in the builder base, I did much better compared to last week. It took less than 22 minutes to get to 6 wins. I activated my clock tower early on, activating it before my first builder base win. I rose up 6 trophies to 2,847 trophies today. I spent an extra 30 minutes using the clock tower boost, and upgraded one of my 5 firecrackers to level 7 for 2.0 million gold. All of my my hidden traps are max level (excluding teslas) I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. - 2022 Sunday, August 21st
+
+### 2022, Sunday, August 28th
+
+Today in the builder base, I did much better compared to last week. It took less than 20 minutes to get to 6 wins. I activated my clock tower early on, activating it before my first builder base win. I rose up 87 trophies to 2,934 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 1 wall to level 5 for 800,000 gold. I plan to upgrade more walls to level 5 and 6. - 2022 Sunday, August 28th
+
+### 2022, Sunday, September 4th
+
+Today in the builder base, I did much better compared to last week. It took less than 20 minutes to get to 6 wins. I activated my clock tower later on, activating it after 2 builder base wins. I rose up 88 trophies to 3,046 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 1 wall to level 5 for 800,000 gold. I plan to upgrade more walls to level 5 and 6, this was the second week of me upgrading walls here. - 2022 Sunday, September 4th
+
+### 2022, Sunday, September 11th
+
+Today in the builder base, I did much worse compared to last week. It took less than 30 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first builder base battle. I dropped down 97 trophies to 2,949 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 2 walls to level 5 for 800,000 gold each, 1.6 million gold total. I have 19 more walls to upgrade to level 5. I plan to upgrade more walls to level 5 and 6, this was the third week of me upgrading walls here. - 2022 Sunday, September 11th
+
+### 2022, Sunday, September 18th
+
+Today in the builder base, I did much worse compared to last week. It took less than 30 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first builder base battle. I dropped down 61 trophies to 2,888 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 2 walls to level 5 for 800,000 gold each, 1.6 million gold total. I have 17 more walls to upgrade to level 5. I plan to upgrade more walls to level 5 and 6, this was the fourth week of me upgrading walls here. - 2022 Sunday, September 18th
+
+### 2022, Sunday, September 25th
+
+Today in the builder base, I did a bit better compared to last week. It took less than 30 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first builder base battle. I rose up 24 trophies to 2,912 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 2 walls to level 5 for 800,000 gold each, 1.6 million gold total. I have 15 more walls to upgrade to level 5. I plan to upgrade more walls to level 5 and 6, this was the fifth week of me upgrading walls here. - 2022 Sunday, September 25th
+
+### 2022, Sunday, October 2nd
+
+Today in the builder base, I did a bit worse compared to last week. It took less than 30 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first builder base battle. I dropped down 3 trophies to 2,909 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 1 wall to level 5 for 800,000 gold. I have 14 more walls to upgrade to level 5. I plan to upgrade more walls to level 5 and 6, this was the sixth week of me upgrading walls here. - 2022 Sunday, October 2nd
+
+### 2022, Sunday, October 9th
+
+Today in the builder base, I did a bit better compared to last week. It took less than 20 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first builder base battle. I rose up 26 trophies to 2,935 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 3 walls to level 5 for 800,000 gold each, 2.4 million gold total. I have 11 more walls to upgrade to level 5. I plan to upgrade more walls to level 5 and 6, this was the seventh week of me upgrading walls here. - 2022 Sunday, October 9th
+
+### 2022, Sunday, October 16th
+
+Today in the builder base, I did a lot worse compared to last week. It took over 28 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first builder base battle. I dropped down 144 trophies to 2,791 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 1 walls to level 5 for 800,000 gold. I have 10 more walls to upgrade to level 5. I plan to upgrade more walls to level 5 and 6, this was the eighth week of me upgrading walls here. - 2022 Sunday, October 16th
+
+### 2022, Sunday, October 23rd
+
+Today in the builder base, I did a lot BETTER compared to last week. It took less than 28 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first builder base battle. I got 5 wins in a row, followed by several losses, and a final 6th win. I rose up 39 trophies to 2,820 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 1 wall to level 5 for 800,000 gold. I have 9 more walls to upgrade to level 5. I plan to upgrade more walls to level 5 and 6, this was the ninth week of me upgrading walls here. - 2022 Sunday, October 23rd
+
+### 2022, Sunday, October 30th
+
+Today in the builder base, I did a bit worse compared to last week. It took less than 28 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first builder base battle. I unlocked the 2nd master builder today. I rose up 84 trophies to 2,904 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 2 walls to level 5 for 800,000 gold. I have 7 more walls to upgrade to level 5. I plan to upgrade more walls to level 5 and 6, this was the tenth week of me upgrading walls here. - 2022 Sunday, October 30th
+
+### 2022, Sunday, November 6th
+
+Today in the builder base, I did a bit better compared to last week. It took less than 23 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first builder base battle. I rose up 65 trophies to 2,969 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 1 wall to level 5 for 800,000 gold. I have 6 more walls to upgrade to level 5. I plan to upgrade more walls to level 5 and 6, this was the eleventh week of me upgrading walls here. I also upgraded my Super P.E.K.K.A. to level 4. - 2022 Sunday, November 6th
+
+### 2022, Sunday, November 13th
+
+Today in the builder base, I did a bit worse compared to last week. It took less than 27 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first builder base battle. I dropped down 52 trophies to 2,917 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 1 wall to level 5 for 800,000 gold. I have 5 more walls to upgrade to level 5. I plan to upgrade more walls to level 5 and 6, this was the twelfth week of me upgrading walls here. I was unable to do any other upgrades this week. - 2022 Sunday, November 13th
+
+### 2022, Sunday, November 20th
+
+Today in the builder base, I did a lot better compared to last week. It took less than 17 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first builder base battle. I rose up 118 trophies to 3,035 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 2 walls to level 5 for 800,000 gold each, 1.6 million gold total. I have 3 more walls to upgrade to level 5. I plan to upgrade more walls to level 5 and 6, this was the thirteenth week of me upgrading walls here. I also began to upgrade my SUPER P.E.K.K.A. to level 5 for 1.9 million elixir. I then waited out the boost, and quit shortly afterwards. - 2022 Sunday, November 20th
+
+### 2022, Sunday, November 27th
+
+Today in the builder base, I did a bit worse compared to last week. It took more than 20 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first builder base battle. I rose up 28 trophies to 3,063 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 2 walls to level 5 for 800,000 gold each, 1.6 million gold total. I have 1 more wall to upgrade to level 5. I plan to upgrade more walls to level 5 and 6, this was the fourteenth week of me upgrading walls here. I did not do any other upgrades here today. - 2022 Sunday, November 27th
+
+### 2022, Sunday, December 4th
+
+Today in the builder base, I did a lot worse compared to last week. It took more than 30 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first builder base battle. I dropped down 143 trophies to 2,920 trophies today, but at one point peaked at 3,122 trophies, before losing over 200. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 1 wall to level 6 for 1.2 million gold each, 1.2 million gold total. I have 1 more wall to upgrade to level 5, but it isn't a priority at the moment. I plan to upgrade more walls to level 5 and 6, this was the fifteenth consecutive week of me upgrading walls here. I did not do any other upgrades here today. - 2022 Sunday, December 4th
+
+### 2022, Sunday, December 11th
+
+Today in the builder base, I did a lot better compared to last week. It took less than 20 minutes to get to 6 wins. I activated my clock tower earlier on, activating it after I did a builder base battle, not starting it before battling was an accident. I rose up 54 trophies to 2,974 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 1 wall to level 6 for 1.2 million gold each, 1.2 million gold total. I have 1 more wall to upgrade to level 5, but it isn't a priority at the moment. I have 5 walls to upgrade to level 6 that surround my core builder hall region. I plan to upgrade more walls to level 5 and 6, this was the sixteenth consecutive week of me upgrading walls here. I did not do any other upgrades here today. - 2022 Sunday, December 11th
+
+### 2022, Sunday, December 18th
+
+Today in the builder base, I did a lot better compared to last week. It took less than 18 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I rose up 82 trophies to 3,056 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 1 wall to level 6 for 1.2 million gold each, 1.2 million gold total. I have 1 more wall to upgrade to level 5, but it isn't a priority at the moment. I have 4 walls to upgrade to level 6 that surround my core builder hall region. I plan to upgrade more walls to level 5 and 6, this was the seventeenth consecutive week of me upgrading walls here. I also began upgrading my Super P.E.K.K.A to level 7 for 2.4 million elixir. I did not do any other upgrades here today. - 2022 Sunday, December 18th
+
+### 2022, Sunday, December 25th
+
+Today in the builder base, I did slightly worse compared to last week. It took less than 22 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I dropped down 35 trophies to 3,021 trophies today, at one point peaking at 3,115 trophies. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 2 walls to level 6 for 1.2 million gold each, 2.4 million gold total. I have 1 more wall to upgrade to level 5, but it isn't a priority at the moment. I have 2 more walls to upgrade to level 6 that surround my core builder hall region. I plan to upgrade more walls to level 5 and 6, this was the eighteenth consecutive week of me upgrading walls here. I did not do any other upgrades here today. - 2022 Sunday, December 25th
+
+### 2023, Sunday, January 1st
+
+Today in the builder base, I did significantly worse compared to last week. It took over 32 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I dropped down 122 trophies to 2,899 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, except for upgrading 1 wall segment to level 6 for 1.2 million gold. I have 1 more wall to upgrade to level 5, but it isn't a priority at the moment. I have 1 more wall to upgrade to level 6 that surround my core builder hall region. I plan to upgrade more walls to level 5 and 6, this was the nineteenth consecutive week of me upgrading walls here. I did not do any other upgrades here today. - 2023, Sunday, January 1st
+
+### 2023, Sunday, January 8th
+
+Today in the builder base, I did a little better compared to last week. It took less than 24 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I rose up 1 trophy to 2,900 trophies today. I plan to do all upgrades 2.1 million gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I didn't do any upgrades today, not even able to upgrade any walls. This ended nineteen consecutive weeks of me upgrading walls here. I still plan to upgrade 1 last wall segment, then I intend to start doing building upgrades again. - 2023, Sunday, January 8th
+
+### 2023, Sunday, January 15th
+
+Today in the builder base, I did significantly better compared to last week. It took less than 10 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I rose up 145 trophies to 3,045 trophies today. I plan to do all upgrades 2.1 million builder gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I upgraded the last wall segment surrounding my builder hall to level 6 today for 1.2 million builder gold. I intend to start doing building upgrades again next, instead of wall upgrades. During my downtime with the battles, I visited the base of my childhood friend, Shamus. I additionally upgraded my super P.E.K.K.A to level 9 for 2.6 million elixir. - 2023, Sunday, January 15th
+
+### 2023, Sunday, January 22nd
+
+Today in the builder base, I did significantly worse compared to last week. It took more than 26 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I dropped down 29 trophies to 3,016 trophies today. I plan to do all upgrades 2.1 million builder gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I upgraded my last level 6 hidden tesla to level 7 for 2.1 million gold. - 2023, Sunday, January 22nd
+
+### 2023, Sunday, January 29th
+
+Today in the builder base, I did a bit better compared to last week. It took less than 24 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I dropped down 4 trophies to 3,012 trophies today. I plan to do all upgrades 2.1 million builder gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I decided not to upgrade anything this week, as I didn't want to upgrade firecrackers or walls, and I want to do something that actually improves my defense. - 2023, Sunday, January 29th
+
+### 2023, Sunday, February 5th
+
+Today in the builder base, I did a lot worse compared to last week. It took less than 27 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I dropped down 27 trophies to 2,985 trophies today. I plan to do all upgrades 2.1 million builder gold and below. I am also considering getting all of my walls to level 6, so that after I finish all the elixir upgrades, I can just upgrade walls with elixir. I decided not to upgrade anything this week, as I didn't want to upgrade firecrackers or walls, and I want to do something that actually improves my defense. I am saving up to upgrade my lava launcher to level 5. I should be able to upgrade it next week. Additionally, I upgraded my Super P.E.K.K.A to level 10 for 2.8 million elixir. - 2023, Sunday, February 5th
+
+### 2023, Sunday, February 12th
+
+Today in the builder base, I did a lot better compared to last week. It took less than 18 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I rose up 94 trophies to 3,079 trophies today. I peaked at 3,107 trophies, I plan to do all upgrades 2.1 million builder gold and below. I upgraded my lava launcher to level 5 for 3.7 million gold today. A new goal I have is to max out all of the buildings in the core region of my base (the first layer of buildings surrounding the builder hall) I didn't do any other upgrades today. - 2023, Sunday, February 12th
+
+### 2023, Sunday, February 19th
+
+Today in the builder base, I did a lot worse compared to last week. It took less than 24 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I rose up 31 trophies to 3,110 trophies today, but had significant losses beforehand. I plan to do all upgrades 2.1 million builder gold and below. I was not able to do any upgrades this week. I thought the level 5 lava launcher was a cool upgrade (making the stones surrounding the lava pit straight and not gravel) but the level 6 lava launcher looks so much better. This is my next planned upgrade. It will also bring the hitpoints past 1000. A new goal I have is to max out all of the buildings in the core region of my base (the first layer of buildings surrounding the builder hall) I didn't do any other upgrades today. - 2023, Sunday, February 19th
+
+### 2023, Sunday, February 26th
+
+Today in the builder base, I did a lot worse compared to last week. It took over 31 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I dropped down 179 trophies to 2,931 trophies today, having a load of losses. I upgraded my gem mine to level 8 for 3.5 million elixir today, compromising the ability to get gems next week from the mine, but giving a higher output. I was going to upgrade my P.E.K.K.A to level 11, but decided this was the better upgrade. A new goal I have is to max out all of the buildings in the core region of my base (the first layer of buildings surrounding the builder hall) I didn't do any other upgrades today. - 2023, Sunday, February 26th
+
+### 2023, Sunday, March 5th
+
+Today in the builder base, I did about the same compared to last week. It took over 31 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I dropped down 63 trophies to 2,868 trophies today, having a load of losses. I thought that the gem mine upgrade not being finalized until I returned would cause me to not be able to collect from it. I was wrong on this. I was hoping to get so much gold today that after finishing attacks, my coffers would be completely full, and there were would be a red gold icon. I got very, very close, but didn't reach this. A recent goal I have is to max out all of the buildings in the core region of my base (the first layer of buildings surrounding the builder hall) I upgraded my lava launcher to level 6 today for 4 million gold, after I finished my 6 successful battles. I didn't do any other upgrades today. - 2023, Sunday, March 5th
+
+### 2023, Sunday, March 12th
+
+Today in the builder base, I did significantly better compared to last week. It took less than 19 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I rose up 120 trophies to 2,888 trophies today. A recent goal I have is to max out all of the buildings in the core region of my base (the first layer of buildings surrounding the builder hall) there are 14 upgrades left in this section of my base. I could not afford the upgrades I wanted this week. I plan on upgrading my gem mine to max level 9 next, and my lava launcher to level 7. I didn't do any other upgrades today. - 2023, Sunday, March 12th
+
+### 2023, Sunday, March 19th
+
+Today in the builder base, I did a lot worse compared to last week. It took over 30 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I dropped down 31 trophies to 2,857 trophies today, having a load of losses. I didn't upgrade anything this week, but came extremely close to upgrading my gem mine to max level. The gold upgrade I plan to do next is upgrading my lava launcher to level 7. A new goal I have is to max out all of the buildings in the core region of my base (the first layer of buildings surrounding the builder hall) I didn't do any upgrades today. - 2023, Sunday, March 19th
+
+### 2023, Sunday, March 26th
+
+Today in the builder base, I did a lot better compared to last week. It took less than 15 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I rose up 145 trophies to 3,002 trophies today, having several 3 star attacks. I upgraded my gem mine to max level 9 today, and spent lots of extra time saving up gold to upgrade my lava launcher to level 7. I used a clock tower potion, and then some additional time, so I didn't have to use any gems on the upgrade. This is a rare instance in which I did 2 building upgrades to my builder base in one week. A new goal I have is to max out all of the buildings in the core region of my base (the first layer of buildings surrounding the builder hall) I didn't do any upgrades today. - 2023, Sunday, March 26th
+
+### 2023, Sunday, April 2nd
+
+Today in the builder base, I did a bit worse compared to last week. It took less than 25 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I rose up 2 trophies to 3,004 trophies today, having a mixed battle record. I began upgrading my hog glider to level 2 today for 1.6 million elixir, as there are no elixir upgrades left besides ones in the laboratory, and wall upgrades. I plan on upgrading my lava launcher to level 8 next. I used a clock tower potion, and then some additional time, so I didn't have to use any gems on the upgrade. I didn't upgrade any buoldings this week. A new goal I have is to max out all of the buildings in the core region of my base (the first layer of buildings surrounding the builder hall) - 2023, Sunday, April 2nd
+
+### 2023, Sunday, April 9th
+
+Today in the builder base, I did a lot worse compared to last week. It took over 32 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I dropped down 148 trophies to 2,856 trophies today, having a very poor battle record. I decided to cancel my plans on a level 8 lava launcher, as I was reading about the changes to the builder base, and I decided to go back to normal upgrades again, upgrading my clock tower to level 9 for 2.7 million gold. A new goal I have is to max out all of the buildings in the core region of my base (the first layer of buildings surrounding the builder hall) this goal is currently paused. - 2023, Sunday, April 9th
+
+### 2023, Sunday, April 16th
+
+Today in the builder base, I did a bit better compared to last week. It took over 25 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. My clock tower was max level this week, so I got 30 minutes out of it, instead of 28. I dropped down 29 trophies to 2,827 trophies today, having a very poor battle record. I decided to cancel my plans on a level 8 lava launcher, as I was reading about the changes to the builder base, and I decided to go back to normal upgrades again, I couldn't do any building upgrades this week, but I did begin upgrading my hog glider to level 3. A new goal I have is to max out all of the buildings in the core region of my base (the first layer of buildings surrounding the builder hall) this goal is currently paused. - 2023, Sunday, April 16th
+
+### 2023, Sunday, April 23rd
+
+Today in the builder base, I did a lot better compared to last week. It took less than 14 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I rose up 116 trophies to 2,943 trophies today, having a very good battle record. I decided to cancel my plans on a level 8 lava launcher, as I was reading about the changes to the builder base, and I decided to go back to normal upgrades again, I upgraded a cannon to level 8 today. I also began to upgrade my hog glider to level 4. A new goal I have is to max out all of the buildings in the core region of my base (the first layer of buildings surrounding the builder hall) this goal is currently paused. - 2023, Sunday, April 23rd
+
+### 2023, Sunday, April 30th
+
+Today in the builder base, I did a bit worse compared to last week. It took less than 24 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I rose up 9 trophies to 2,952 trophies today, having a very mixed battle record. I primarily targeted giant cannons today for a season quest. I began upgrading some firecrackers to level 7 today (my 2nd firecrackers building) I also began to upgrade my hog glider to level 5. A new goal I have is to max out all of the buildings in the core region of my base (the first layer of buildings surrounding the builder hall) this goal is currently paused. - 2023, Sunday, April 30th
+
+### 2023, Sunday, May 7th
+
+Today in the builder base, I did a bit better compared to last week. It took less than 14 minutes to get to 6 wins. I activated my clock tower earlier on, activating it before starting my first battle. I rose up 120 trophies to 3,072 trophies today, having a very successful battle record. I primarily targeted giant cannons today for a season quest. I was not able to do any upgrades this week. I was going to upgrade another firecracker building, or my guard post. A new goal I have is to max out all of the buildings in the core region of my base (the first layer of buildings surrounding the builder hall) this goal is currently paused. - 2023, Sunday, May 7th
+
+### 2023, Sunday, May 14th
+
+Today in the builder base, I did a bit worse compared to last week. It took a long time to get to 6 wins. I activated my clock tower later on, as I forgot to activate it, activating it before getting a 4th successful battle completed. I dropped down 144 trophies (from 3,072 to 2,928 trophies) today, having a very mixed battle record. I began to upgrade my Hog Glider to level 6, and a guard post to level 7. The guard post upgrade will be useful, as it will create 2 more distraction troops, and also increase their level. I have noted that the battle machine constantly commits suicide against crushers and guard posts, so this will be a helpful, but frustrating deterrant. A new goal I have is to max out all of the buildings in the core region of my base (the first layer of buildings surrounding the builder hall) this goal is currently paused. - 2023, Sunday, May 14th
+
+### 2023, Sunday, May 21st
+
+The game had a massive update before I could start playing. It did a massive change to the builder base, where attacks are done in 2 phases. My base was completely moved around, and I can't revert it. I don't like it very much, but I don't have the strongest dislike for it. I miss the old builder base. It also feels like I am now earning less per week in the builder base.
+
+It additionally felt weird going from the builder base to my home village, it normally isn't too much of an optical change for me. There were also lots of graphical changes, and times to how long it takes for buildings to upgrade. I began to upgrade the outpost to level 2, and also build a new structure. I did fewer battles, and won every time. - 2023, Sunday, May 21st
+
+### 2023, Sunday, May 28th
+
+I began to upgrade O.T.T.Os outpost to level 3, and quickly gained 18 stars. I used my clock tower boost, and began cleaning up some obstacles again this week. I didn't make very much progress. I began my session strongly resentful towards the new layout, but became less hostile towards it by the end. I still consider it a downgrade. - 2023, Sunday, May 28th
+
+### 2023, Sunday, June 4th
+
+I began to upgrade O.T.T.Os outpost to level 3, and quickly gained 18 stars. I used my clock tower boost after the first battle, and began cleaning up some obstacles again this week. I didn't make very much progress. - 2023, Sunday, June 4th
+
+### 2023, Sunday, June 11th
+
+I did not do any upgrades this week, and quickly gained 18 stars. I originally got 17 stars, and did a risky attack to get a final star. I used my clock tower boost before the first battle, and began cleaning up some obstacles again this week. I didn't make very much progress. I plan on building a reinforcement camp next. - 2023, Sunday, June 11th
+
+### 2023, Sunday, June 18th
+
+I did some attacks, and quickly gained 18 stars. I used my clock tower boost before the first battle, and began cleaning up some obstacles again this week. I didn't make very much progress. I began building a reinforcement camp today. Next, I plan to build the battle copter, then upgrade my builder hall to level 10. If I begin to overflow on gold, I will likely upgrade O.T.T.O.s outpost to level 5. - 2023, Sunday, June 18th
+
+### 2023, Sunday, June 25th
+
+I did some attacks, and quickly gained 19 stars. I used my clock tower boost before the first battle, and did not clean up obstacles this week. I began to upgrade O.T.T.Os outpost to level 5, while the reinforcement camp was still building, and will finish next week. I didn't make very much progress. I reached steel III today, which increased my battle rewards, and upped the star requirement. I also reorganized part 2 of my base, as I noted some weakness. Phase 1 of my builder base is a fortress, while phase 2 is a town. - 2023, Sunday, June 25th
+
+### 2023, Sunday, July 2nd
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I built the battle copter today. I didn't make very much progress. I stayed in steel III today. The game randomly had a server error near the end, despite no Wi-Fi problems, so it looks like Clash of Clans is going to become like Boom Beach in that regard. - 2023, Sunday, July 2nd
+
+### 2023, Sunday, July 9th
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost after the first battle, and cleaned up some obstacles this week. I didn't make very much progress. I stayed in steel III today. I also began to upgrade my builder hall to level 10. I later toured the top builder base (trophy-wise) and found that most of their buildings or troops were not max level, which I never expected to be possible of the #1 player in the world. - 2023, Sunday, July 9th
+
+### 2023, Sunday, July 16th
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost after the first battle, and cleaned up some obstacles this week. I didn't make very much progress. I made it to Steel II today, but had significant struggles, as the opponents have been getting too difficult. I had my first new builder base failure, where I did a battle that gained 0 stars. The battle started in the cave base for some reason, and not the grass base. I built a new mine, and upgraded it to level 2, level 3, and finally level 4. I also upgraded a gold mine to level 10, and an elixir collector to level 10, as I recently got to max builder hall level 10. I am 88 trophies away from reaching my all-time record again. - 2023, Sunday, July 16th
+
+### 2023, Sunday, July 23rd
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I didn't make very much progress. I somehow managed to stay in Steel II today, but dropped out multiple times (coming back each time) having significant struggles, as the opponents have been getting too difficult. They weren't as bad this week. I had my second new builder base failure, where I did a battle that gained 0 stars. The battle did not start in the cave base this time. I also upgraded 2 gold mines to level 10. I am 69 trophies away from reaching my all-time record again. - 2023, Sunday, July 23rd
+
+### 2023, Sunday, July 30th
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had significant success in battle, winning all battles I started. I reached a new all-time builder base trophy record of 3499, beating my previous all-time record by 4 trophies, and staying in Steel II. I would likely be unable to do this if it wasn't for the Builder Base II update. I also began upgrading 2 elixir collectors to level 10. I plan to save up for an X-BOW next. - 2023, Sunday, July 30th
+
+### 2023, Sunday, August 6th
+
+I did some attacks, and swiftly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had significant success in battle, winning all battles I started. I reached another new all-time builder base trophy record of 3,589 (but dropping to 3,556, as the last win doesn't count) beating my previous all-time record by 90 trophies, and staying in Steel II. I would likely be unable to do this if it wasn't for the Builder Base II update. I also began building a new X-BOW, and upgrading my star laboratory to level 10. I didn't do anything else here this week. - 2023, Sunday, August 6th
+
+### 2023, Sunday, August 13th
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had less success in battle, doing poorly in most battles, but surprisingly winning many of them. I dropped down 16 trophies (to 3,548 trophies) due to a mixed battle record. The X-BOW finished building shortly after I arrived in the Builder Base, while the Star Laboratory was still upgrading. I began to upgrade a mine to level 5 for 50,000 gold a bit into the clock tower boost. I also toured the base of someone who attacked my main village. I didn't do anything else here this week. - 2023, Sunday, August 13th
+
+### 2023, Sunday, August 20th
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had more success in battle, doing pretty well in most battles. I was able to briefly reach Steel League I. I rose up 8 trophies (to 3,556 trophies) due to a mixed battle record. I began to upgrade a mine to level 6, and a push trap to max level 10. I didn't do anything else here this week. - 2023, Sunday, August 20th
+
+### 2023, Sunday, August 27th
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had less success in battle, doing pretty poorly in early battles, and a bit better in most battles. I rose up 4 trophies (to 3,560 trophies) due to a mixed battle record. I began to upgrade a mine to level 7, and my healing hut to level 3. I didn't do anything else here this week. - 2023, Sunday, August 27th
+
+### 2023, Sunday, September 3rd
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had more success in battle, doing pretty well in early battles, and a bit worse in later battles. I rose up 18 trophies (to 3,578 trophies) due to a mixed battle record. I began to upgrade a mine to level 8, and a gold mine to level 10, to add more defense around the outpost (as 300 hitpoints can slow down an offensive, and in some cases, can even determine a battle) I didn't do anything else here this week. - 2023, Sunday, September 3rd
+
+### 2023, Sunday, September 10th
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost after the first battle, and cleaned up some obstacles this week. I had significantly less success in battle, doing very poorly. I dropped down 89 trophies (from 3,578 to 3,489 trophies) due to a very poor battle record. I began to upgrade my multi-mortar to level 10. The upgrade won't be finished by next week, so I am hoping SUPERCELLs algorithm the message, and gives me an easier opponent at least once next week. I didn't do anything else here this week. - 2023, Sunday, September 10th
+
+### 2023, Sunday, September 17th
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had significantly more success in battle, doing pretty well, but not excellent. I rose up 30 trophies (from 3,489 to 3,519 trophies) due to a good battle record. I began to upgrade my multi-mortar to level 10 last week, and the upgrade didn't finish by my battles this week. It seemed to have little effect on battle success, as I was given easier opponents. I also upgraded my 2nd gold storage to level 10 this week. I didn't do anything else here this week. - 2023, Sunday, September 17th
+
+### 2023, Sunday, September 24th
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had significantly more success in battle, doing very well in comparison to my opponents. I rose up 73 trophies (from 3,519 to 3,592 trophies) due to a great battle record. I began to upgrade 2 push traps to max level 10 this week for 500,000 gold each, 1,000,000 gold total. I didn't do anything else here this week. - 2023, Sunday, September 24th
+
+### 2023, Sunday, October 1st
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost after the first battle, and cleaned up some obstacles this week. I had moderate success in battle, doing worse compared to last week. I dropped down 10 trophies (from 3,592 to 3,582 trophies) due to a mixed battle record. I began to upgrade 1 push trap to max level 10 this week for 500,000, and a hidden mine to level 9 for 500,000 gold. I didn't do anything else here this week. - 2023, Sunday, October 1st
+
+### 2023, Sunday, October 8th
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost after the first battle, and cleaned up some obstacles this week. I had moderate success in battle, doing worse compared to last week. I dropped down 9 trophies (from 3,582 to 3,571 trophies) due to a mixed battle record that got better over time. I began to upgrade 1 push trap to max level 10 this week for 500,000, and my first elixir storage building to level 10 for another 3.2 million gold. I didn't do anything else here this week. - 2023, Sunday, October 8th
+
+### 2023, Sunday, October 15th
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had moderate success in battle, doing a lot worse compared to last week. I dropped down 23 trophies (from 3,571 to 3,548 trophies) due to a mixed battle record that got worse over time. I began to upgrade my night witch to level 19 today. I was going to upgrade my gem mine to max level, but decided that this was more important. I didn't do anything else here this week. - 2023, Sunday, October 15th
+
+### 2023, Sunday, October 22nd
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost after the second battle (as I forgot initially) and cleaned up some obstacles this week. I had moderate success in battle, doing a lot worse compared to last week. I rose up 27 trophies (from 3,548 to 3,575 trophies) due to a good battle record that stayed moderate over time. I began to upgrade a 3rd firecracker to level 7 today for 2 million gold. With elixir upgrades, I plan to upgrade my night witch to level 20, then my gem mine to level 10. I didn't do anything else here this week. - 2023, Sunday, October 22nd
+
+### 2023, Sunday, October 29th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did significantly better this week. I quickly gained 20 stars, and I rose up to a new record amount of 3654 trophies, rising up 106 trophies today (from 3,548 to 3,654) I managed to stay in Steel League I. - 2023, Sunday, October 29th
+
+Upgrade data unavailable.
+
+### 2023, Sunday, November 5th
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost after the second battle (as I forgot initially) and cleaned up some obstacles this week. I had success in battle, doing a little worse compared to last week, but still good. I rose up 13 trophies (from 3,654 to 3,667 trophies) due to a good battle record. I began to upgrade an elixir storage to level 10 today for 3.2 million gold. With elixir upgrades, I plan to upgrade my night witch to level 20, then my gem mine to level 10. I didn't do anything else here this week. - 2023, Sunday, November 5th
+
+### 2023, Sunday, November 12th
+
+Data unavailable.
+
+### 2023, Sunday, November 19th
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had signifcant success in battle, doing a little worse compared to last week, but still good. I rose up 80 trophies (from 3,650 to 3,730 trophies) due to a good battle record. I began to upgrade a firecracker defense building to level 7 for 2 million gold, with plans to get my 5th one to level 7 next. I plan to upgrade my gem mine to level 10 as my next elixir upgrade. I didn't do anything else here this week. - 2023, Sunday, November 19th
+
+### 2023, Sunday, November 26th
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had signifcant success in battle, doing a little worse compared to last week, but still good. I dropped down 29 trophies (from 3,730 to 3,701 trophies) due to a decent battle record. I began to upgrade a fifth and final firecracker defense building to level 7 for 2 million gold. I plan to upgrade my gem mine to level 10 as my next elixir upgrade. I didn't do anything else here this week. - 2023, Sunday, November 26th
+
+### 2023, Sunday, December 3rd
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had signifcant success in battle, doing a little worse compared to last week, but still good. I rose up 12 trophies (from 3,701 to 3,713 trophies) due to a decent battle record. I began to upgrade a fifth and final firecracker defense building to level 7 for 2 million gold. I began to upgrade a gem mine to max level 10 today. I didn't do anything else here this week. - 2023, Sunday, December 3rd
+
+### 2023, Sunday, December 10th
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had some success in battle, doing a lot worse compared to last week, but still OK. I rose up 7 trophies (from 3,713 to 3,720 trophies) due to a decent battle record. I didn't do anything else here this week. - 2023, Sunday, December 10th
+
+### 2023, Sunday, December 17th
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had some success in battle, doing a lot better compared to last week.. I rose up 28 trophies (from 3,720 to 3,748 trophies) due to a good battle record. I used a star jar to get 10 more stars, and more spoils, so that I could upgrade my builder barracks to max level 12. I don't care too much about unlocking the electro fire wizard, I am focused on adding hitpoints around the citadel of builder base part 1, so that more damage can be dealt before the enemy breaks through. I didn't do anything else here this week. - 2023, Sunday, December 17th
+
+### 2023, Sunday, December 24th
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had a significant level of failure in battle, doing a lot worse compared to last week. I dropped down 119 trophies (from 3,748 to 3,629 trophies) due to a horrible battle record. I upgraded my clock tower to level 10 to finish increasing the hitpoints around the citadel of builder base part 1. I didn't do anything else here this week. - 2023, Sunday, December 24th
+
+### 2023, Sunday, December 31st
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had a decreased level of failure in battle this week, doing a lot better compared to last week, but still not very well. I rose up 15 trophies (from 3,629 to 3,646 trophies) due to a poor battle record. I did not do any upgrades this week. I didn't do anything else here this week. - 2023, Sunday, December 31st
+
+### 2024, Sunday, January 7th
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had another decreased level of failure in battle this week, doing slightly better compared to last week, but still not very well. I came close to dropping out of Steel League I today. I rose up 19 trophies (from 3,646 to 3,665 trophies) due to a poor battle record. I did not do any upgrades this week. I didn't do anything else here this week. - 2024, Sunday, January 7th
+
+### 2024, Sunday, January 14th
+
+I did some attacks, and slowly gained 30 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had an increased level of failure in battle this week, doing significantly worse compared to last week, as the game gave me too many difficult opponents (my roaster was upgrading, this probably really didn't help, but I needed the resources) I finally dropped out of Steel League I today, going back to Steel League II. I will eventually make it back to Steel League I. I used a clock tower potion and a star jar to continue playing. I dropped down 140 trophies (from 3,665 to 3,525 trophies) due to a poor battle record. I began to upgrade my battle copter to level 16 today. I didn't do anything else here this week. - 2024, Sunday, January 14th
+
+### 2024, Sunday, January 21st
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had a decreased level of failure in battle this week, doing moderately better compared to last week. I rose up 56 trophies (from 3,525 to 3,581 trophies) due to a decent battle record. I began to upgrade O.T.T.O.s outpost to level 7 today for 3 million gold. I stayed in Steel League II today I didn't do anything else here this week. - 2024, Sunday, January 21st
+
+### 2024, Sunday, January 28th
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had a decreased level of failure in battle again this week, doing slightly better compared to last week. I rose up 31 trophies (from 3,581 to 3,612 trophies) due to a decent battle record. I made it back to Steel League I today. I began to upgrade my Battle Copter to level 17 for 3.7 million elixir after the conclusion of all battles today. I didn't do anything else here this week. - 2024, Sunday, January 28th
+
+### 2024, Sunday, February 4th
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had a decreased level of failure in battle again this week, doing slightly worse compared to last week. I rose up 12 trophies (from 3,612 to 3,624 trophies) due to a decent battle record. I stayed in Steel League I today. I began to upgrade my Battle Copter to level 18 for 3.8 million elixir after the conclusion of all battles today, along with the archer tower next to O.T.T.O.s outpost to level 8. I didn't do anything else here this week. - 2024, Sunday, February 4th
+
+### 2024, Sunday, February 11th
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had a decreased level of failure in battle again this week, doing slightly better compared to last week. I rose up 13 trophies (from 3,624 to 3,637 trophies) due to a decent battle record. I stayed in Steel League I today. I didn't do any building upgrades this week. I didn't do anything else here this week. - 2024, Sunday, February 11th
+
+### 2024, Sunday, February 18th
+
+I did some attacks, and slowly gained 30 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had a decreased level of failure in battle again this week, doing slightly better compared to last week. I rose up 26 trophies (from 3,637 to 3,663 trophies) due to a decent battle record. I stayed in Steel League I today. I used a builder star jar today to earn an additional star bonus. I decided to continue saving up resources, and did not upgrade anything this week (I didn't do any building upgrades this week) I didn't do anything else here this week. - 2024, Sunday, February 18th
+
+### 2024, Sunday, February 25th
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had a decreased level of failure in battle again this week, doing slightly better compared to last week. I rose up 40 trophies (from 3,663 to 3,703 trophies) due to a good battle record. I stayed in Steel League I today. I used a clock tower potion today to earn additional resources from a second clock tower boost. I began to upgrade my battle machine to level 31, and my air bombs to level 8 this week. - 2024, Sunday, February 25th
+
+### 2024, Sunday, March 3rd
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had an increased level of failure in battle again this week, doing slightly worse compared to last week. I dropped down 3 trophies (from 3,703 to 3,700 trophies) due to an OK battle record. I stayed in Steel League I today. The ongoing upgrade of my air bombs likely made defense of my village harder. I began to upgrade a set of firecrackers to level 8 for 3 million gold, near my O.T.T.O outpost this week. - 2024, Sunday, March 3rd
+
+### 2024, Sunday, March 10th
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had an increased level of failure in battle again this week, doing significantly worse compared to last week. I dropped down 47 trophies (from 3,700 to 3,653 trophies) due to a poor battle record. I stayed in Steel League I today. I began to upgrade my battle machine to level 32 this week, along with a hidden bomb to max level 10. I also used a clock tower boost today. - 2024, Sunday, March 10th
+
+### 2024, Sunday, March 17th
+
+I did some attacks, and slowly gained 30 stars. I used a star jar to get a third star nhonus today. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had an increased level of failure in battle again this week, doing significantly worse compared to last week. I dropped down 59 trophies (from 3,653 to 3,594 trophies) due to a poor battle record. I feel out of  Steel League I today, and ended the session back in Steel League II. I began to upgrade a sdecond hidden bomb to max level 10. These upgrades are really disappointing me. - 2024, Sunday, March 17th
+
+### 2024, Sunday, March 24th
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had an increased level of success in battle again this week, doing significantly better compared to last week. I rose up 48 trophies (from 3,594 to 3,642 trophies) due to a good battle record. I went back into Steel League I today, and ended the session back in Steel League I. I did not do any upgrades here this week. - 2024, Sunday, March 24th
+
+### 2024, Sunday, March 31st
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had an increased level of success in battle again this week, doing better compared to last week. I rose up 61 trophies (from 3,642 to 3,703 trophies) due to a good battle record. I stayed in Steel League I today, and ended the session back in Steel League I. I used a second clock tower boost today, so that I could afford to upgrade my battle machine to level 33 for 4.3 million elixir. I also upgraded a cannon to level 8 for 2.5 million gold. I did not do any other upgrades here this week. - 2024, Sunday, March 31st
+
+### 2024, Sunday, April 7th
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had a decreased level of success in battle again this week, doing slightly worse compared to last week. I rose up 21 trophies (from 3,703 to 3,724 trophies) due to an OK battle record. I stayed in Steel League I today, and ended the session back in Steel League I. I didn't do any upgrades this week. - 2024, Sunday, April 7th
+
+### 2024, Sunday, April 14th
+
+I did some attacks, and slowly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had a heavily increased level of failure in battle again this week, doing significantly worse compared to last week. I dropped down 83 trophies (from 3,724 to 3,641 trophies) due to a very poor battle record. I stayed in Steel League I today, and ended the session in Steel League I. I began to upgrade 2 hidden mines to level 10 today for 1.5 million gold each, 3 million gold total. - 2024, Sunday, April 14th
+
+### 2024, Sunday, April 21st
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before the first battle, and cleaned up some obstacles this week. I had a decreased level of failure in battle again this week, doing slightly better compared to last week, but still dropping trophies. I dropped down 30 trophies (from 3,641 to 3,611 trophies) due to a very poor battle record. I stayed in Steel League I today, and ended the session in Steel League I, although I dropped out briefly. I began to upgrade another hidden mine to level 10 today for 1.5 million gold. Just 1 more hidden mine to max out. - 2024, Sunday, April 21st
+
+### 2024, Sunday, April 28th
+
+I did some attacks, and quickly gained 30 stars. I used my clock tower boost to get my battle machine upgrade finished, so I had to wait over 33 minutes before I could start battling, as my battle machine was upgrading. It was a 7 day upgrade, and it was started at around 7:00 pm in the last session, while this session was a week later, and started before 1:00 pm. I used a clock tower potion before the first battle, and cleaned up some obstacles this week. I had a decreased level of failure in battle again this week, doing slightly better compared to last week, but not dropping trophies. I rose up 30 trophies (from 3,611 to 3,641 trophies) due to a very mixed battle record. I stayed in Steel League I today, and ended the session in Steel League I, although I dropped out multiple times. I began to upgrade a final hidden mine to level 10 today for 1.5 million gold. - 2024, Sunday, April 28th
+
+### 2024, Sunday, May 5th
+
+I did some attacks, and gradually gained 30 stars. I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that. I had a decreased level of failure in battle again this week, doing slightly better compared to last week, but not dropping trophies. I rose up 42 trophies (from 3,641 to 3,683 trophies) due to a very mixed battle record. I stayed in Steel League I today, and ended the session in Steel League I. I used a star bonus boost to get additional resources required for upgrading today. I began to upgrade an archer tower to level 8 today for 2.8 million gold, along with my battle machine to max level 35 for 4.5 million elixir. - 2024, Sunday, May 5th
+
+### 2024, Sunday, May 12th
+
+I did some attacks, and gradually gained 20 stars. I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that. I had an increased level of failure in battle this week, doing significantly worse compared to last week, but not dropping very many trophies, as the last 2 players didn't really try very hard. I dropped down 28 trophies (from 3,683 to 3,665 trophies) due to a very mixed battle record. I stayed in Steel League I today, and ended the session in Steel League I, although I dropped to Steel League II briefly. I did not do any upgrades here this week. - 2024, Sunday, May 12th
+
+### 2024, Sunday, May 19th
+
+I did some attacks, and gradually gained 30 stars. I used a builder star jar today. I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that. I had a good amount of success in battle this week, doing better compared to last week. I almost beat my trophy record today. I rose up 57 trophies (from 3,665 to 3,720 trophies) due to a mixed battle record. I stayed in Steel League I today. I began to upgrade a cannon to level 8 this week for 2.5 million gold. I did not do any otbher upgrades here this week. - 2024, Sunday, May 19th
+
+### 2024, Sunday, May 26th
+
+I did some attacks, and gradually gained 20 stars. I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that. I had a low amount of success in battle this week, doing worse compared to last week. dropping down 32 trophies (from 3,720 to 3,688 trophies) due to a mixed battle record. I stayed in Steel League I today. I began to upgrade my healing hut to level 5 for 4 million elixir. I did not do any other upgrades here this week. - 2024, Sunday, May 26th
+
+### 2024, Sunday, June 2nd
+
+I did some attacks, and gradually gained 30 stars. I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that. I had a moderate amount of success in battle this week, doing better compared to last week. rising up 25 trophies (from 3,688 to 3,713 trophies) due to a mixed battle record. I stayed in Steel League I today. I began to upgrade my O.T.T.O.s outpost to level 8 today for 4 million gold. I used a builder star jar today so that I could afford this upgrade. I plan to max out my healing hut and O.T.T.O.s outpost next, it will take weeks. I did not do any other upgrades here this week. - 2024, Sunday, June 2nd
+
+### 2024, Sunday, June 9th
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that. I had a low amount of success in battle this week, doing worse compared to last week. dropping down 17 trophies (from 3,713 to 3,696 trophies) due to a mixed battle record. I stayed in Steel League I today. O.T.T.O.s outpost was still upgrading today, and I didn't do any other upgrades for now. I plan to upgrade my healing hut to max level 6 next, which I will be able to do next week.. I did not do any upgrades here this week. - 2024, Sunday, June 9th
+
+### 2024, Sunday, June 16th
+
+- I did some attacks, and gradually gained 20 stars. I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that. I had a very low amount of success in battle this week, doing significantly worse compared to last week, and almost droppe out of Steel League I, dropping down 87 trophies (from 3,696 to 3,609 trophies) due to a poor battle record. I stayed in Steel League I today. I was supposed to save up to upgrade O.T.T.O.s outpost again, but instead upgraded a mega mine to level 10 for 2.5 milliong old. I also upgraded my healing hut to max level 6 for 5 million elixir. I did not do any upgrades here this week. - 2024, Sunday, June 16th
+
+### 2024, Sunday, June 23rd
+
+- I did some attacks, and gradually gained 20 stars.
+- I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that.
+- I had a moderate amount of success in battle this week, doing slightly better compared to last week.
+- I rose up 55 trophies (from 3,609 to 3,664 trophies) due to a mixed battle record. I stayed in Steel League I today.
+- I am currently saving up to upgrade O.T.T.O.s outpost to level 9.
+- I did not do any upgrades here this week. - 2024, Sunday, June 23rd
+
+### 2024, Sunday, June 30th
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that.
+- I had a very poor amount of success in battle this week, doing slightly worse compared to last week.
+- I dropped down 36 trophies (from 3,664 to 3,618 trophies) due to a poor battle record. I stayed in Steel League I today, but dropped out briefly.
+- I am currently saving up to upgrade O.T.T.O.s outpost to level 9. No upgrades were done this week here.
+- I did not do any upgrades here this week. - 2024, Sunday, June 30th
+
+### 2024, Sunday, July 7th
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that.
+- I had a low amount of success in battle this week, doing slightly better compared to last week.
+- There was 1 battle that really frustrated me. Only 1 building was left, and there was less than 10 seconds on the clock. I went to get a screenshot, and my phone decided to freeze up, and didn't respond until the time had run out. I felt that if I could have used my battle machine ability right then, I could have gotten the 3rd star. I was so frustrated by this.
+- I rose up 20 trophies (from 3,618 to 3,638 trophies) due to a poor battle record. I stayed in Steel League I today, and didn't drop out at all.
+- I am currently saving up to upgrade O.T.T.O.s outpost to level 9. No upgrades were done this week here.
+- I did not do any upgrades here this week. - 2024, Sunday, July 7th
+
+### 2024, Sunday, July 14th
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that.
+- I had a moderate amount of success in battle this week, doing slightly better compared to last week, but also worse.
+- I rose up 2 trophies (from 3,638 to 3,640 trophies) due to a mixed battle record. I stayed in Steel League I today, and didn't drop out at all.
+- I began to upgrade O.T.T.O.s outpost to level 9 this week for 5 million builder gold. It will not be ready by next week, but by the week after that. I plan to save up and upgrade O.T.T.O.s outpost to max level 10 next.
+- I did not do any upgrades here this week. - 2024, Sunday, July 14th
+
+### 2024, Sunday, July 21st
+
+- I did some attacks, and quickly gained 20 stars.
+- I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that.
+- I had a moderate amount of success in battle this week, doing slightly better compared to last week, but also worse, as my opponents were also doing better. I conducted multiple 6 star wins.
+- I rose up 18 trophies (from 3,640 to 3,658 trophies) due to a mixed battle record. I stayed in Steel League I today, and didn't drop out at all.
+- O.T.T.O.s outpost was still upgrading to level 9 this week. I plan to save up and upgrade O.T.T.O.s outpost to max level 10 next.
+- I did not do any upgrades here this week. - 2024, Sunday, July 21st
+
+### 2024, Sunday, July 28th
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that.
+- I had a moderate amount of success in battle this week, doing slightly worse compared to last week.
+- I dropped down 19 trophies (from 3,658 to 3,639 trophies) due to a mixed battle record. I stayed in Steel League I today, and didn't drop out at all.
+- I am saving up to upgrade O.T.T.O.s outpost to level 10, which will cost 6 million gold. I began to upgrade my battlecopter to level 21 for 3.1 million elixir.
+- I did not do any upgrades here this week. - 2024, Sunday, July 28th
+
+### 2024, Sunday, August 4th
+
+- I did some attacks, and gradually gained 20 stars.
+- I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that.
+- I had a moderate amount of success in battle this week, doing slightly better compared to last week.
+- I rose up 26 trophies (from 3,639 to 3,665 trophies) due to a mixed battle record. I stayed in Steel League I today, and didn't drop out at all.
+- I am saving up to upgrade O.T.T.O.s outpost to level 10, which will cost 6 million gold. Because of this, I didn't do any upgrades this week. - 2024, Sunday, August 4th
+
+### 2024, Sunday, August 11th
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that.
+- I had a moderate amount of success in battle this week, doing slightly better compared to last week.
+- I dropped down 46 trophies (from 3,665 to 3,619 trophies) due to a mixed battle record. At one point, I was above 3700 trophies. I stayed in Steel League I today, and didn't drop out at all, although I was really close to doing so.
+- I began to upgrade O.T.T.O.s outpost to level 10 today for 6 million gold. I also upgraded my battle copter to level 22 for 3.2 million elixir. I did not do any other upgrades this week. - 2024, Sunday, August 11th
+
+### 2024, Sunday, August 18th
+
+- I did some attacks, and slowly gained 30 stars. I used a builder star jar today
+- I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that.
+- I had an extremely high level of failure in battle this week, doing severely worse compared to last week.
+- I dropped down 69 trophies (from 3,619 to 3,550 trophies) due to a poor battle record. At one point, I was about to drop below 3500 trophies. I dropped out of Steel League I today, and ended in Steel League II
+- O.T.T.O.s outpost was still upgrading to level 10. I did not do any upgrades this week. - 2024, Sunday, August 18th
+
+### 2024, Sunday, August 25th
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that.
+- I had a low level of success in battle this week, doing slightly worse compared to last week.
+- I dropped down 18 trophies (from 3,550 to 3,532 trophies) due to a poor battle record. I stayed in Steel League II today, and did not make it back to Steel League I.
+- I began to upgrade my battle copter to level 23 today for 3.3 million elixir. I plan to upgrade my air bombs next. I did not do any upgrades this week. - 2024, Sunday, August 25th
+
+### 2024, Sunday, September 1st
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before starting the first battle, and cleaned up some obstacles this week before that.
+- I had a very low level of success in battle this week, doing significantly worse compared to last week.
+- I dropped down 90 trophies (from 3,532 to 3,442 trophies) due to a very poor battle record. I stayed in Steel League II today, and did not make it back to Steel League I.
+- I decided to upgrade my roaster to level 9 this week for 4.6 million gold, instead of my air bombs to level 9. The upgrade won't finish until my 2024, September 15th session. It likely had an impact on my defense, but it needed to get done, and would likely cause the same problem next week. - 2024, Sunday, September 1st
+
+### 2024, Sunday, September 8th
+
+- I did some attacks, and rapidly gained 20 stars.
+- I used my clock tower boost after the first battle (as I forgot) and cleaned up some obstacles this week before that.
+- I had a very high level of success in battle this week, doing significantly better compared to last week. All 4 attacks were 200% (perfect) attacks. I gained 200 trophies from this, but at the same time, my opponents took some from me, so I didn't make it back to Steel League I just yet.
+- I rose up 121 trophies (from 3,442 to 3,563 trophies) due to a very successful battle record. I stayed in Steel League II today, and did not make it back to Steel League I, although I came close. I don't know how I did so well while my roaster was still upgrading.
+- I decided to upgrade my battle copter to level 24 this week for 3.4 million elixir. I didn't do any other upgrades this week.
+- This is all that happened in the builder base this week. - 2024, Sunday, September 8th
+
+### 2024, Sunday, September 15th
+
+- I did some attacks, and quickly gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that.
+- I had a moderately high level of success in battle this week, doing slightly worse compared to last week, but still doing well. I made it back into Steel League I, and stayed there for the rest of the session.
+- I rose up 71 trophies (from 3,563 to 3,634 trophies) due to a successful battle record.
+- I didn't do any upgrades here this week.
+- This is all that happened in the builder base this week. - 2024, Sunday, September 15th
+
+### 2024, Sunday, September 22nd
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that.
+- I had a very low level of success in battle this week, doing significantly worse compared to last week. I fell back into Steel League II, and never made it back to Steel League I this week.
+- I dropped up 80 trophies (from 3,634 to 3,554 trophies) due to a very poor battle record.
+- I didn't do any upgrades here this week. I am saving up to upgrade my roaster to max level 10.
+- This is all that happened in the builder base this week. - 2024, Sunday, September 22nd
+
+### 2024, Sunday, September 29th
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that.
+- I had a moderate level of success in battle this week, doing better compared to last week. I made it back to Steel League I, and remained there for the rest of the session
+- I rose up 75 trophies (from 3,554 to 3,629 trophies) due to a moderate battle record.
+- I began to upgrade my battle copter to level 25 for 3.5 million elixir. I did not do any other upgrades here this week.
+- This is all that happened in the builder base this week. - 2024, Sunday, September 29th
+
+### 2024, Sunday, October 6th
+
+- I did some attacks, and gradually gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that.
+- I had a lower level of success in battle this week, doing worse compared to last week. I fell back into Steel League II, making it back to Steel League I a couple of times, but ending the session in the lower rank.
+- I dropped down 51 trophies (from 3,629 to 3,578 trophies) due to a poor battle record. The lack of success was likely due to my roaster still upgrading to max level 10.
+- I did not do any upgrades in the builder base this week.
+- This is all that happened in the builder base this week. - 2024, Sunday, October 6th
+
+### 2024, Sunday, October 13th
+
+- I did some attacks, and slowly gained 30 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I used a builder star jar today to gain more rewards, and also make it back into Steel League I, after dropping in and out multiples today.
+- I had a moderate level of success in battle this week, doing worse compared to last week. I fell back into Steel League II, making it back to Steel League I a couple of times, but ending the session in Steel League I
+- I rose up 28 trophies (from 3,578 to 3,606 trophies) due to a good battle record.
+- I began to upgrade my giant cannon to level 8 for 3.8 million gold, along with my battle copter to level 26 for 3.6 million elixir. I did not do any other upgrades here this week.
+- This is all that happened in the builder base this week. - 2024, Sunday, October 13th
+
+### 2024, Sunday, October 20th
+
+- I did some attacks, and rapidly gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and made progress in the league.
+- I had a notable level of success in battle this week, doing significantly better compared to last week.
+- I rose up 87 trophies (from 3,606 to 3,693 trophies) due to a great battle record.
+- I did not do any building upgrades here this week. My giant cannon was still being upgraded this week.
+- This is all that happened in the builder base this week. - 2024, Sunday, October 20th
+
+### 2024, Sunday, October 27th
+
+- I did some attacks, and gradually gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and made minor progress in the league.
+- I had a moderate level of success in battle this week, doing slightly better compared to last week.
+- I rose up 6 trophies (from 3,693 to 3,699 trophies) due to an average battle record.
+- I did not do any building upgrades here this week.
+- This is all that happened in the builder base this week. - 2024, Sunday, October 27th
+
+### 2024, Sunday, November 3rd
+
+- I did some attacks, and gradually gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and fell back a little bit in the league.
+- I had a moderate level of success in battle this week, doing slightly worse compared to last week.
+- I dropped down 21 trophies (from 3,699 to 3,678 trophies) due to a mixed battle record.
+- I began to upgrade my battle copter to level 27 for 3.7 million elixir, along with my air bombs to level 9 for 4.4 million gold. I did not do any other upgrades here this week.
+- This is all that happened in the builder base this week. - 2024, Sunday, November 3rd
+
+### 2024, Sunday, November 10th
+
+- I did some attacks, and gradually gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and fell back further in the league.
+- I had a low level of success in battle this week, doing worse compared to last week.
+- I dropped down 56 trophies (from 3,678 to 3,622 trophies) due to a poor battle record. My air bombs upgrading may have played a role in this.
+- I did not do any upgrades here this week.
+- This is all that happened in the builder base this week. - 2024, Sunday, November 10th
+
+### 2024, Sunday, November 17th
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I dropped out of Steel League I today, going back to Steel League II and staying there.
+- I had a low level of success in battle this week, doing worse compared to last week.
+- I dropped down 28 trophies (from 3,622 to 3,594 trophies) due to a poor battle record.
+- I began to upgrade my battle copter to level 28 for 3.8 million elixir. I did not do any other upgrades here this week.
+- This is all that happened in the builder base this week. - 2024, Sunday, November 17th
+
+### 2024, Sunday, November 24th
+
+- I did some attacks, and rapidly gained 30 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I rose up to Steel League I a few times today, but always fell back to Steel League II, and stayed there to end the session, by a single trophy.
+- I had a moderate level of success in battle this week, doing slightly better compared to last week.
+- I rose up 5 trophies (from 3,594 to 3,599 trophies) due to a poor battle record.
+- I used a builder star jar to get my star bonus a third time today.
+- I did not do any upgrades here this week.
+- This is all that happened in the builder base this week. - 2024, Sunday, November 24th
+
+### 2024, Sunday, December 1st
+
+- I did some attacks, and rapidly gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I rose up to Steel League I a few times today, but always fell back to Steel League II, and stayed there to end the session.
+- I had a moderate level of success in battle this week, doing slightly worse compared to last week.
+- I dropped down 12 trophies (from 3,599 to 3,587 trophies) due to a poor battle record.
+- I began to upgrade my air bombs to level 10 today after all builder base battles.
+- This is all that happened in the builder base this week. - 2024, Sunday, December 1st
+
+### 2024, Sunday, December 8th
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League II this week.
+- I had a low level of success in battle this week, doing worse compared to last week.
+- I dropped down 28 trophies (from 3,587 to 3,559 trophies) due to a poor battle record.
+- My air bombs were upgrading during all battles, which likely impacted my defense.
+- This is all that happened in the builder base this week. - 2024, Sunday, December 8th
+
+### 2024, Sunday, December 15th
+
+- I did some attacks, and slowly gained 30 stars. I used a builder star jar today.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I rose back up to Steel League I this week.
+- I had a high level of success in battle this week, doing significantly better compared to last week.
+- I rose up 101 trophies (from 3,559 to 3,660 trophies) due to a very successful battle record.
+- I began to upgrade an archer tower to level 8 for 2.8 million gold this week. I plan on getting all of my builder base defenses to level 8 or higher (excluding some, such as the X-BOW) right now, I want to get one of my firecrackers to level 9, so that I can see what level 10 is like
+- This is all that happened in the builder base this week. - 2024, Sunday, December 15th
+
+### 2024, Sunday, December 22nd
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I this week.
+- I had a high level of success in battle this week, doing slightly worse compared to last week.
+- I rose up 43 trophies (from 3,660 to 3,703 trophies) due to a successful battle record.
+- I did not do any upgrades here this week.
+- This is all that happened in the builder base this week. - 2024, Sunday, December 22nd
+
+### 2024, Sunday, December 29th
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I this week.
+- I had a mixed level of success in battle this week, doing slightly worse compared to last week, but not dropping any trophies.
+- I rose up 7 trophies (from 3,703 to 3,710 trophies) due to a mixed battle record.
+- I began to upgrade my battle copter to level 30 this week for 4 million elixir. I am saving up to upgrade a firecracker to level 9.
+- This is all that happened in the builder base this week. - 2024, Sunday, December 29th
+
+### 2025, Sunday, January 5th
+
+- I did some attacks, and gradually gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I ranked up to Titanium League III this week.
+- I had a mixed level of success in battle this week, doing better compared to last week, but not dropping any trophies. Most of my attacks were weak, but for some reason, all of the defenses were very good.
+- I rose up 91 trophies (from 3,710 to 3,801 trophies) due to a good battle record. I reached a new all-time record of 3801 trophies.
+- I began to upgrade a firecracker to level 9 for 4 million gold this week.
+- This is all that happened in the builder base this week. - 2025, Sunday, January 5th
+
+### 2025, Sunday, January 12th
+
+- I did some attacks, and gradually gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I briefly dropped back down to Steel League I today, but made it back to Titanium League III, and beat my trophy record again.
+- I had a mixed level of success in battle this week, doing slightly worse compared to last week, but not dropping any trophies. Several of my attacks were weak, but the defenses were good or modest most of the time.
+- I rose up 50 trophies (from 3,801 to 3,851 trophies) due to a good battle record. I reached a new all-time record of 3851 trophies.
+- I began to upgrade my battle machine to level 31 this week for 4.1 million elixir. My firecracker structure was still upgrading to level 9 today.
+- This is all that happened in the builder base this week. - 2025, Sunday, January 12th
+
+### 2025, Sunday, January 19th
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I dropped back down to Steel League I today, having numerous battles end with 1 or 2 stars, with just 1 battle going above that (gaining 4 stars)
+- I had a poor level of success in battle this week, doing significantly worse compared to last week. All of my attacks were weak, but the defenses were modest most of the time, letting me stay in Titanium League III until near the end of the battle sessions, before dropping down.
+- I dropped down 87 trophies (from 3,851 to 3,764 trophies) due to a poor battle record.
+- I began to upgrade an archer tower to level 9 this week for 3.6 million gold.
+- This is all that happened in the builder base this week. - 2025, Sunday, January 19th
+
+### 2025, Sunday, January 26th
+
+- I did some attacks, and slowly gained 30 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today.
+- I had a poor level of success in battle this week, doing worse compared to last week. Part of this may be because one of my archer towers was upgrading to level 9 during all battles. I also used a builder star jar today.
+- I dropped down 53 trophies (from 3,764 to 3,711 trophies) due to a poor battle record.
+- I did not start any new upgrades this week.
+- This is all that happened in the builder base this week. - 2025, Sunday, January 26th
+
+### 2025, Sunday, February 2nd
+
+- I did some attacks, and slowly gained 30 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, although I briefly reached Titanium League III.
+- I had a moderate level of success in battle this week, doing slightly better compared to last week. I had several relatively easy opponents in the beginning, including a lot of builder hall 9 bases
+- I rose up 38 trophies (from 3,711 to 3,749 trophies) due to a mixed battle record.
+- I began to upgrade my archer tower to max level 10 for 4.6 million gold. Earlier on (before starting any battles) I upgraded my battle copter to level 32 for 4.2 million elixir, as I would have overflown my elixir storage if I didn't upgrade early on.
+- This is all that happened in the builder base this week. - 2025, Sunday, February 2nd
+
+### 2025, Sunday, February 9th
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, only dropping further.
+- I had a low level of success in battle this week, doing worse compared to last week.
+- I dropped down 64 trophies (from 3,749 to 3,685 trophies) due to a poor battle record.
+- I began to upgrade my battle machine to level 33 this week for 4.3 million elixir. My archer tower was still upgrading to level 10 this week.
+- I was very out of it while playing today, so I was slow on some regards, such as not collecting resource rewards until the 3rd battle was over, and not checking my battle log first thing.
+- This is all that happened in the builder base this week. - 2025, Sunday, February 9th
+
+### 2025, Sunday, February 16th
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, only dropping further.
+- I had a low level of success in battle this week, doing close to the same compared to last week.
+- I dropped down 39 trophies (from 3,685 to 3,646 trophies) due to a poor battle record. I infrequently was able to get 3 or more stars per attack.
+- I did not do any upgrades here this week, as I couldn't afford any.
+- This is all that happened in the builder base this week. - 2025, Sunday, February 16th
+
+### 2025, Sunday, February 23rd
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, only gaining a few trophies.
+- I had a low level of success in battle this week, doing better compared to last week.
+- I rose up 3 trophies (from 3,646 to 3,649 trophies) due to a poor battle record.
+- I began to upgrade an archer tower to level 9 this week for 3,600,000 builder gold.
+- This is all that happened in the builder base this week. - 2025, Sunday, February 23rd
+
+### 2025, Sunday, March 2nd
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I briefly dropped down to Steel League II today, but ended in Steel League I.
+- I had a low level of success in battle this week, doing worse compared to last week.
+- I dropped down 28 trophies (from 3,649 to 3,621 trophies) due to a poor battle record.
+- I began to upgrade my battle copter to level 34 for 4.4 million elixir. My archer tower was still upgrading to level 9 this week, which may have impaired my success in battle slightly.
+- This is all that happened in the builder base this week. - 2025, Sunday, March 2nd
+
+### 2025, Sunday, March 9th
+
+- I did some attacks, and slowly gained 20 stars.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did relatively well, due to several low-level bases. I also had a long pause during battles, as I was doing other things around this time.
+- I had a good level of success in battle this week, doing better compared to last week.
+- I rose up 44 trophies (from 3,621 to 3,665 trophies) due to a poor battle record.
+- I began to upgrade my cannon to level 9 this week for 3,300,000 gold. My battle copter was still upgrading early on, but finished a few battles in. I only need to upgrade it one more time to max it out. After maxing it out, I plan to start upgrading my super P.E.K.K.A. troop.
+- This is all that happened in the builder base this week. - 2025, Sunday, March 9th
+
+### 2025, Sunday, March 16th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did relatively well again this week.
+- I had a good level of success in battle this week, doing similarly to last week.
+- I rose up 30 trophies (from 3,665 to 3,695 trophies) due to a mixed battle record.
+- I did not do any upgrades this week, and my cannon that I began upgrading last week was still upgrading.
+- This is all that happened in the builder base this week. - 2025, Sunday, March 16th
+
+### 2025, Sunday, March 23rd
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did a little poorly this week.
+- I had a moderate level of success in battle this week, doing worse compared to last week. I had several small gains in the beginning, then lost all of them.
+- I dropped down 11 trophies (from 3,695 to 3,684 trophies) due to a mixed battle record.
+- I began to upgrade my battle copter to max level 35 this week for 4,500,000 elixir.
+- This is all that happened in the builder base this week. - 2025, Sunday, March 23rd
+
+### 2025, Sunday, March 30th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did slightly better this week.
+- I had a moderate level of success in battle this week, doing slightly better compared to last week. I had several good attacks, but also some poor defenses.
+- I rose up 8 trophies (from 3,684 to 3,692 trophies) due to a mixed battle record.
+- I began to upgrade a cannon to level 9 for 3,300,000 gold this week.
+- This is all that happened in the builder base this week. - 2025, Sunday, March 30th
+
+### 2025, Sunday, April 6th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did significantly better this week.
+- I had a high level of success in battle this week, doing significantly better compared to last week. I had several good attacks, and could have ended in a higher position, if there wasn't a 200% attack against my base.
+- I rose up 43 trophies (from 3,692 to 3,735 trophies) due to a decent battle record.
+- A cannon was still upgrading to level 9 this week. I began to upgrade a firecracker building to level 8 for 3,000,000 elixir, along with my Super P.E.K.K.A troop to level 14 for 3,600,000 elixir, marking the first builder base troop upgrade in quite some time.
+- This is all that happened in the builder base this week. - 2025, Sunday, April 6th
+
+### 2025, Sunday, April 13th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did significantly better this week. I briefly rose up to Titanium League III today.
+- I had a high level of success in battle this week, doing significantly better compared to last week. Most of my attacks were average or moderate, while defenses were almost always very good.
+- I rose up 45 trophies (from 3,735 to 3,780 trophies) due to a decent battle record.
+- I wasn't able to afford any upgrades this week, while no upgrades were in progress.
+- This is all that happened in the builder base this week. - 2025, Sunday, April 13th
+
+### 2025, Sunday, April 20th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did worse this week. I briefly rose up to Titanium League III again today.
+- I had a moderate level of success in battle this week, doing worse compared to last week. Most of my attacks were poor, average or moderate, while defenses were mostly okay. I used a builder star jar today to go for 30 stars, instead of 20, so that I could do a better building upgrade.
+- I dropped down 31 trophies (from 3,780 to 3,749 trophies) due to a poor battle record.
+- I upgraded my last level 8 cannon to level 9 today for 3,300,000 gold, along with my Super P.E.K.K.A troop to level 15 for 3,800,000 elixir. 
+- This is all that happened in the builder base this week. - 2025, Sunday, April 20th
+
+### 2025, Sunday, April 27th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did better this week.
+- I had a moderate level of success in battle this week, doing better compared to last week. All of my attacks resulted in 2 stars each, except for 1 attack, which was a 6 star attack.
+- I rose up 21 trophies (from 3,749 to 3,770 trophies) due to a mixed battle record.
+- My cannon was still upgrading to level 9 this week, and I did not start any new upgrades during this session.
+- This is all that happened in the builder base this week. - 2025, Sunday, April 27th
+
+### 2025, Sunday, May 4th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I rose up to Titanium League III today, and managed to stay there.
+- I had a good level of success in battle this week, doing better compared to last week. Most of my attacks were good or moderate, while most defenses (especially in the later portion) were very good.
+- I rose up 38 trophies (from 3,770 to 3,808 trophies) due to a good battle record.
+- I began to upgrade a cannon to max level 10 for 4,500,000 gold, along with my Super P.E.K.K.A troop to level 16 for 4,000,000 elixir. I received a lot of resources this week from a season ending.
+- This is all that happened in the builder base this week. - 2025, Sunday, May 4th
+
+### 2025, Sunday, May 11th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I used a clock tower potion, and 2 builder star jars today. I went for 40 stars today.
+- I had a very low level of success in battle this week, doing significantly worse compared to last week. There were several defenses in a row that resulted in the opponent getting 200% and I dropped back down to Steel League I multiple times, and ended there, over 100 trophies down.
+- I dropped down 119 trophies (from 3,808 to 3,689 trophies) due to a very poor battle record.
+- My cannon was still upgrading to level 10 today during all battles. I also began to upgrade my Super P.E.K.K.A troop to level 17 for 4,400,000 elixir.
+- This is all that happened in the builder base this week. - 2025, Sunday, May 11th
+
+### 2025, Sunday, May 18th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, or a star jar potion.
+- I had a low level of success in battle this week, doing significantly better compared to last week.
+- I rose up 20 trophies (from 3,689 to 3,709 trophies) due to a limited battle record.
+- No buildings were upgraded during any attacks today. After the campaign for today, I began to upgrade a hidden tesla building to level 8 for 3,100,000 gold, but was later disappointed with this upgrade, as I felt something else should have been upgraded.
+- This is all that happened in the builder base this week. - 2025, Sunday, May 18th
+
+### 2025, Sunday, May 25th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, or a star jar potion.
+- I had a moderate level of success in battle this week, doing slightly better compared to last week.
+- I rose up 31 trophies (from 3,709 to 3,740 trophies) due to a limited battle record.
+- There was 1 battle that failed. I was waiting for the game to find an opponent, but it was taking a long time. Shortly after as I went to cancel, it found an opponent, and thus my attack was a no troop, 0% attack. It really shouldn't have even counted. I didn't lose too many trophies from this mistake.
+- No buildings were upgrading during any attacks today. I did not do any building or troop upgrades this week, as I couldn't afford the one I wanted (Power P.E.K.K.A level 18, undecided on buildings)
+- This is all that happened in the builder base this week. - 2025, Sunday, May 25th
+
+### 2025, Sunday, June 1st
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, or a star jar potion.
+- I had a moderate level of success in battle this week, doing slightly better compared to last week.
+- I rose up 30 trophies (from 3,740 to 3,770 trophies) due to a limited battle record.
+- I briefly made it back to Titanium League III today, but dropped back down.
+- The season ended, and I earned a lot of resources for my builders base.
+- No buildings were upgrading during any attacks today. Early on, before starting any battles or collecting from my gold mines/elixir collectors, I upgraded my Power P.E.K.K.A troop to level 18 for 4,800,000 elixir, as I was close to overflowing on elixir. After todays battles, I began to upgrade my giant cannon to level 9 for 4,700,000 gold. This upgrade is going to take 11 days, so a defensive building is going to be upgrading during my battles next week.
+- This is all that happened in the builder base this week. - 2025, Sunday, June 1st
+
+### 2025, Sunday, June 8th
+
+- I used my clock tower boost after the first battle, as I forgot to start it beforehand, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, or a star jar potion.
+- I had a very poor level of success in battle this week, doing significantly worse compared to last week.
+- I dropped down 72 trophies (from 3,770 to 3,698 trophies) due to a poor battle record.
+- Most of my attacks were poor or moderate, while several of my defenses were very poor, with my base receiving 200% destruction several times.
+- My giant cannon was upgrading during all attacks today. I am not sure what I am going to upgrade next week, and I did not start any new upgrades this week.
+- This is all that happened in the builder base this week. - 2025, Sunday, June 8th
+
+### 2025, Sunday, June 15th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, but I did use a star jar potion, so that I would have more gold next week.
+- I had a moderate level of success in battle this week, doing significantly better compared to last week.
+- I rose up 24 trophies (from 3,698 to 3,722 trophies) due to a mixed battle record.
+- I began to upgrade my Power P.E.K.K.A troop to level 19 for 4,600,000 elixir. I plan to upgrade my giant cannon to max level 10 next.
+- This is all that happened in the builder base this week. - 2025, Sunday, June 15th
+
+### 2025, Sunday, June 22nd
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, but I did use a star jar potion, so that I would have enough gold to do an upgrade
+- I had a moderate level of success in battle this week, doing better compared to last week.
+- I rose up 38 trophies (from 3,722 to 3,760 trophies) due to a mixed battle record.
+- I began to upgrade my giant cannon to max level 10 for 5,700,000 gold. The upgrade won't be finished until 2025, July.
+- This is all that happened in the builder base this week. - 2025, Sunday, June 22nd
+
+### 2025, Sunday, June 29th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a good level of success in battle this week, doing better compared to last week, although defenses were poor, causing me to gain less trophies. I briefly reached Titanium League III a few times today, but ultimately went back down to Steel League I.
+- I rose up 29 trophies (from 3,760 to 3,789 trophies) due to a good battle record.
+- I began to upgrade my giant cannon to max level 10 for 5,700,000 gold last week. The upgrade won't be finished until 2025, July, and may have impacted my defenses today, as it was upgrading and de-activated during all battles.
+- This is all that happened in the builder base this week. - 2025, Sunday, June 29th
+
+### 2025, Sunday, July 6th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a good level of success in battle this week, doing better compared to last week. I got close to a new trophy record, but dropped down a little bit, although I stayed firmly in Titanium League III by the end of the session.
+- I rose up 65 trophies (from 3,789 to 3,854 trophies) due to a good battle record.
+- I received 2 million builder gold, and 2 million builder elixir from the season ending, and was able to completely fill my elixir storage today, before doing a troop upgrade.
+- I began to upgrade an archer tower to level 9 this week for 3,600,000 gold. It won't be ready by next week, so it will likely impact my defense next week. No buildings were upgrading during any attack today. I also upgraded my Power P.E.K.K.A. troop to max level 20 for 5,800,000 elixir.
+- This is all that happened in the builder base this week. - 2025, Sunday, July 6th
+
+### 2025, Sunday, July 13th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a good level of success in battle this week, doing better compared to last week. I got evne closer to a new trophy record, and I stayed firmly in Titanium League III by the end of the session.
+- I rose up 79 trophies (from 3,854 to 3,933 trophies) due to a good battle record.
+- I began to upgrade a hidden tesla to level 8 this week for 3,100,000 gold. One building (an archer tower) was upgrading during all attacks this week. All of the troops that I actively use in the builder base are now max level.
+- This is all that happened in the builder base this week. - 2025, Sunday, July 13th
+
+### 2025, Sunday, July 20th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a good level of success in battle this week, doing slightly worse to last week. I briefly attained a new trophy record of 4,009 trophies, also briefly making it to Titanium League II. I dropped back down a little bit, but still stayed firmly in Titanium League III by the end of the session.
+- I rose up 43 trophies (from 3,933 to 3,976 trophies) due to a good battle record.
+- I did not do any building or troop upgrades this week. I plan to save up, and upgrade my cannon cart next, instead of upgrading the electro wizard. I have already maxed out all of the troops I use, so I am maxing out other troops now.
+- This is all that happened in the builder base this week. - 2025, Sunday, July 20th
+
+### 2025, Sunday, July 27th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion. I gained a lot of extra gems from season rewards, I feel I may have done my best out of any season this month.
+- I had a good level of success in battle this week, doing slightly better to last week. I reached a new trophy record of 4,021, and ended the session with this trothy count, also ending in Titanium League II. My builder base trophy record is getting close to double that of my home village trophy record.
+- I rose up 45 trophies (from 3,976 to 4,021 trophies) due to a good battle record.
+- I began to upgrade my cannon cart troop to level 19 for 5,300,000 elixir today. I did not upgrade anything else this week, although I am increasingly considering upgrading some of my walls, so that they can just be upgraded with elixir, instead of gold.
+- This is all that happened in the builder base this week. - 2025, Sunday, July 27th
+
+### 2025, Sunday, August 3rd
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a good level of success in battle this week, doing slightly worse compared to last week. I reached another new trophy record of 4,054, and ended the session with this trothy count, also ending in Titanium League II. My builder base trophy record is getting close to double that of my home village trophy record.
+- I rose up 33 trophies (from 4,021 to 4,054 trophies) due to a good battle record.
+- I decided to upgrade several of my walls using elixir, as the troop upgrades don't seem worth it, since all of the troops I use are already max level. After all battles today, I began to upgrade my mega tesla to max level 10 for 5,800,000 gold. This upgrade will take 12 days, so my defense next week won't be as good.
+- This is all that happened in the builder base this week. - 2025, Sunday, August 3rd
+
+### 2025, Sunday, August 10th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a decent level of success in battle this week, doing slightly worse compared to last week. I reached another new trophy record of 4,067, but dropped down to 4,057, ending the session in Titanium League II. My builder base trophy record is getting close to double that of my home village trophy record.
+- I rose up 3 trophies (from 4,054 to 4,057 trophies) due to a decent battle record. I wasn't doing as well, as my attacks were poor, and my defenses weren't the best, possibly due to my mega tesla upgrading to max level 10
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me)
+- This is all that happened in the builder base this week. - 2025, Sunday, August 10th
+
+### 2025, Sunday, August 17th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a poor level of success in battle this week, doing worse compared to last week. I began to gradually fall out of Steel League II, before I reached another new trophy record of 4,083, but dropped down to 4,059. Before that, I was close to dropping to 4,000 trophies, but I managed to end the session in Titanium League II. My builder base trophy record is getting close to double that of my home village trophy record.
+- I rose up 2 trophies (from 4,057 to 4,059 trophies) due to a poor battle record. I wasn't doing as well, as my attacks were poor, and my defenses were modest. No buildings were upgrading during conflict this week.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I didn't do any building upgrades this week.
+- This is all that happened in the builder base this week. - 2025, Sunday, August 17th
+
+### 2025, Sunday, August 24th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, but I did use a star jar potion.
+- I had a poor level of success in battle this week, doing worse compared to last week. I began to gradually fall out of Steel League II, although I managed to stay in this league for another week. Before that, I was close to dropping to 4,000 trophies, but I managed to end the session in Titanium League II. My builder base trophy record is getting close to double that of my home village trophy record.
+- I dropped down 35 trophies (from 4,059 to 4,024 trophies) due to a poor battle record. I wasn't doing as well, as my attacks were poor, and my defenses were even poorer. No buildings were upgrading during conflict this week, although one of my archer towers won't be active during battles next week.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I also began to upgrade a second archer tower to max level 10 for 4,600,000 gold, which will take 9 days. I also spent a small amount of gold on some walls that weren't high enough level to be upgraded with elixir.
+- This is all that happened in the builder base this week. - 2025, Sunday, August 24th
+
+### 2025, Sunday, August 31st
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, but I did use a star jar potion.
+- I had a poor level of success in battle this week, doing slightly better compared to last week. I began to gradually fall out of Steel League II, dropping out briefly, before rising back up, and barely holding in the league.
+- I dropped down 20 trophies (from 4,024 to 4,004 trophies) due to a poor battle record. I wasn't doing as well, as my attacks were moderate, and my defenses were very poor. 1 building (a level 9 archer tower) was upgrading during all attacks today.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I did not do any other upgrades this week.
+- This is all that happened in the builder base this week. - 2025, Sunday, August 31st
+
+### 2025, Sunday, September 7th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a poor level of success in battle this week, doing slightly worse compared to last week. I dropped out of Steel League II, and ended the session in Steel League III, never making it back to Steel League II this week.
+- I dropped down 26 trophies (from 4,004 to 3,978 trophies) due to a poor battle record. I wasn't doing as well, as my attacks were moderate, and my defenses were very poor. 1 building (a mega mine) was upgrading to level 10 during all attacks.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I have become a little careless with my gold, and spent  alot of gold on walls this week, instead of saving up for building upgrades. I also upgraded a mega mine to level 10 for 2,375,000 gold. Many walls were upgraded and moved. I hope to get all of the walls upgraded to level 6 or higher, so that I can spend elixir (instead of gold) to upgrade them. This will require me to upgrade 123 walls, at a cost of 240,000 gold each, 29,520,000 gold total.
+- This is all that happened in the builder base this week. - 2025, Sunday, September 7th
+
+### 2025, Sunday, September 14th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, but did I use a star jar potion.
+- I had a very high level of success in battle this week, doing significantly better compared to last week. I rose back up to Steel League II, and ended the session in Steel League II, also with a new trophy record of 4,083.
+- I rose up 105 trophies (from 3,978 to 4,083 trophies) due to a very successful battle record.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I am still being careless with my gold, and spent a lot of gold on walls this week, instead of saving up for building upgrades. Many walls were upgraded. I hope to get all of the walls upgraded to level 6 or higher, so that I can spend elixir (instead of gold) to upgrade them. This will require me to upgrade 114 more walls, at a cost of 240,000 gold each, 27,560,000 gold total.
+- This is all that happened in the builder base this week. - 2025, Sunday, September 14th
+
+### 2025, Sunday, September 21st
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a very high level of success in battle this week, doing slightly worse compared to last week. I stayed in Steel League II, and ended the session in Steel League II, also with a new trophy record of 4,170, before dropping down to 4,120.
+- I rose up 37 trophies (from 4,083 to 4,120 trophies) due to a successful battle record.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I am still being careless with my gold, and spent even more  gold on walls this week, instead of saving up for building upgrades. Several walls were upgraded. I hope to get all of the walls upgraded to level 6 or higher, so that I can spend elixir (instead of gold) to upgrade them. This will require me to upgrade 107 more walls, at a cost of 240,000 gold each, 25,680,000 gold total.
+- This is all that happened in the builder base this week. - 2025, Sunday, September 21st
+
+### 2025, Sunday, September 28th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a moderate level of success in battle this week, doing worse compared to last week. I stayed in Steel League II, and ended the session in Steel League II.
+- I dropped down 14 trophies (from 4,120 to 4,106 trophies) due to a moderately successful battle record.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I am still being careless with my gold, and spent even more gold on walls this week, instead of saving up for building upgrades. Several walls were upgraded. I hope to get all of the walls upgraded to level 6 or higher, so that I can spend elixir (instead of gold) to upgrade them. This will require me to upgrade 98 more walls, at a cost of 240,000 gold each, 23,520,000 gold total.
+- This is all that happened in the builder base this week. - 2025, Sunday, September 28th
+
+### 2025, Sunday, October 5th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I used several clock tower potions, but I did not use any star jar potions.
+- I had a moderate level of success in battle this week, doing worse compared to last week. I stayed in Steel League II, and ended the session in Steel League II.
+- I rose up 2 trophies (from 4,106 to 4,108 trophies) due to a moderately successful battle record.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I am still being careless with my gold, and spent even more gold on walls this week, instead of saving up for building upgrades. Several walls were upgraded. I hope to get all of the walls upgraded to level 6 or higher, so that I can spend elixir (instead of gold) to upgrade them. This will require me to upgrade 74 more walls, at a cost of 240,000 gold each, 17,760,000 gold total.
+- This is all that happened in the builder base this week. - 2025, Sunday, October 5th
+
+### 2025, Sunday, October 12th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I used 1 clock tower potion, but did not use any star jar potions.
+- I had 2 builder base battle sessions, once on Wednesday, and once on Sunday.
+- I had a moderate level of success in battle this week, doing better compared to last week. I stayed in Titanium League II, and ended the session in Titanium League II.
+- I rose up 30 trophies (from 4,108 to 4,138 trophies) due to a moderately successful battle record.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I am still being careless with my gold, and spent even more gold on walls this week, instead of saving up for building upgrades. Several walls were upgraded. I hope to get all of the walls upgraded to level 6 or higher, so that I can spend elixir (instead of gold) to upgrade them. This will require me to upgrade 53 more walls, at a cost of 240,000 gold each, 12,720,000 gold total.
+- This is all that happened in the builder base this week. - 2025, Sunday, October 12th
+
+### 2025, Sunday, October 19th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I used 1 clock tower potion, but did not use any star jar potions.
+- I had 2 builder base battle sessions, once on Wednesday, and once on Sunday.
+- I had a high level of success in battle this week, doing better compared to last week. I ranked up to Titanium League I, and ended the session in Titanium League I.
+- I rose up 101 trophies (from 4,138 to 4,239 trophies) due to a successful battle record.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I am still being careless with my gold, and spent even more gold on walls this week, instead of saving up for building upgrades. Several walls were upgraded. I hope to get all of the walls upgraded to level 6 or higher, so that I can spend elixir (instead of gold) to upgrade them. This will require me to upgrade 30 more walls, at a cost of 240,000 gold each, 7,200,000 gold total.
+- This is all that happened in the builder base this week. - 2025, Sunday, October 19th
+
+### 2025, Sunday, October 26th
+
+- [SUNDAY ONLY] I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use any clock tower potions, but I did use 1 star jar potion.
+- I had 2 builder base battle sessions, once on Wednesday, and once on Sunday.
+- I had a lower level of success in battle this week, doing worse compared to last week. I stayed in Titanium League I.
+- I dropped down 9 trophies (from 4,239 to 4,228 trophies) due to a poor battle record.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I am still being careless with my gold, and spent even more gold on walls this week, instead of saving up for building upgrades. Several walls were upgraded. I hope to get all of the walls upgraded to level 6 or higher, so that I can spend elixir (instead of gold) to upgrade them. This will require me to upgrade 7 more walls, at a cost of 240,000 gold each, 1,680,000 gold total.
+- This is all that happened in the builder base this week. - 2025, Sunday, October 26th
+
+### 2025, Sunday, November 2nd
+
+- [SUNDAY ONLY] I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use any clock tower potions, but I did use 1 star jar potion.
+- I had 2 builder base battle sessions, once on Wednesday, and once on Sunday.
+- I had a higher level of success in battle this week, doing worse compared to last week. I fell out of Titanium League I on Wednesday, but made it back on Sunday.
+- I rose up 75 trophies (from 4,228 to 4,303 trophies) due to a mixed battle record.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I finished upgrading the remainder of my walls to level 6, meaning gold is no longer needed for wall upgrades, so I also did 4 spring trap upgrades this week. There are 112 more walls to upgrade to level 7 for 400,000 elixir, which will cost 44,800,000 more elixir.
+- This is all that happened in the builder base this week. - 2025, Sunday, November 2nd
+
+### 2025, Sunday, November 9th
+
+- [SUNDAY ONLY] I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use any clock tower potions, nor did I use any star jar potions.
+- I had 2 builder base battle sessions, once on Wednesday, and once on Sunday.
+- I had a lower level of success in battle this week, doing worse compared to last week. I briefly reached Platinum League I twice, but fell back, and ended in Titanium League I, on Sunday.
+- I rose up 23 trophies (from 4,303 to 4,326 trophies) due to a mixed battle record.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I finished upgrading the remainder of my walls to level 6, meaning gold is no longer needed for wall upgrades, so I also did 4 spring trap upgrades this week. There are 33 more walls to upgrade to level 7 for 400,000 elixir, which will cost 13,200,000 more elixir.
+- This is all that happened in the builder base this week. - 2025, Sunday, November 9th
+
+</details>
+
+### 2025, Sunday, November 16th
+
+- [SUNDAY ONLY] I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use any clock tower potions, but I did use 1 star jar potion.
+- I had 2 builder base battle sessions, once on Wednesday, and once on Sunday.
+- I had a higher level of success in battle this week, doing worse compared to last week.
+- I rose up 38 trophies (from 4,326 to 4,364 trophies) due to a mixed battle record.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I finished upgrading the remainder of my walls to level 6, meaning gold is no longer needed for wall upgrades, so I also did 4 spring trap upgrades this week. There are 17 more walls to upgrade to level 7 for 400,000 elixir, which will cost 6,800,000 more elixir.
+- This is all that happened in the builder base this week. - 2025, Sunday, November 16th
+
+***
+
+### Builder Base Battles
+
+<details><summary><p>Click/tap here to expand/collapse older entries</p></summary>
+
+I did mostly night witch spamming today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped far below 2900 and 2800 trophies today due to these losses. - 2021 September 12th
+
+### 2021, Sunday, September 19th
+
+I did mostly night witch spamming today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I didn't drop below 2780 trophies today due to lots of battle success - 2021 September 19th
+
+### 2021, Sunday, September 26th
+
+I did mostly night witch spamming today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped to 2828 trophies today due to lots of battle success - 2021 September 26th
+
+### 2021, Sunday, October 3rd
+
+I did mostly night witch spamming today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped to 2833 trophies today due to lots of battle success - 2021 October 3rd
+
+### 2021, Sunday, October 10th
+
+I did mostly night witch spamming today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped to 2853 trophies today due to lots of battle success - 2021 October 10th
+
+### 2021, Sunday, October 17th
+
+I did mostly night witch spamming today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose to 2881 trophies today due to lots of battle success - 2021 October 17th
+
+### 2021, Sunday, October 24th
+
+I did mostly night witch spamming today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped to 2855 trophies today due to lots of battle success and failure - 2021 October 24th
+
+### 2021, Sunday, October 31st
+
+For my first attack, I tried out hog gliders, they are essentially useless at level 1, so I didn't use them any further today. I did mostly night witch spamming today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped to 2855 trophies today due to lots of battle success and failure - 2021 Sunday October 31st
+
+### 2021, Sunday, November 7th
+
+For my first attack. I did mostly night witch spamming today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped to 2855 trophies today due to lots of battle success and failure - 2021 Sunday November 7th
+
+### 2021, Sunday, November 14th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped to 2740 trophies today due to lots of battle success and failure - 2021 Sunday November 14th
+
+### 2021, Sunday, November 21st
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a very little time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose up to 2863 trophies today due to lots of battle success and failure - 2021 Sunday November 21st
+
+### 2021, Sunday, November 28th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a a little bit of time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped down to 2844 trophies today due to lots of battle success and failure - 2021 Sunday November 28th
+
+### 2021, Sunday, December 5th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a a lot more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped down to 2809 trophies today due to lots of battle success and failure - 2021, Sunday, December 5th
+
+### 2021, Sunday, December 12th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a a lot more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped down to 2714 trophies today due to lots of battle success and failure - 2021, Sunday, December 12th
+
+### 2021, Sunday, December 19th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went up to 2801 trophies today due to lots of battle success and failure. I am starting to notice more and more people doing the all night witch attack method. It is surprising it has never been patched. - 2021, Sunday, December 19th
+
+### 2021, Sunday, December 26th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a lot MORE time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went down to 2749 trophies today due to lots of battle success and failure. I noticed a lot less people doing the all night witch attack method against me today. - 2021, Sunday, December 26th
+
+### 2022, Sunday, January 2nd
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went up to 2779 trophies today due to lots of battle success and failure. - 2022, Sunday, January 2nd
+
+### 2022, Sunday, January 9th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went up to 2928 trophies today due to lots of battle success and failure. - 2022, Sunday, January 9th
+
+### 2022, Sunday, January 16th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went up to 2984 trophies today due to lots of battle success and failure. - 2022, Sunday, January 16th
+
+### 2022, Sunday, January 23rd
+
+<!-- ENTRY MISSING !-->
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went up to 2984 trophies today due to lots of battle success and failure. - 2022, Sunday, January 23rd
+
+### 2022, Sunday, January 30th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took a bit less time to get 6 wins. I got 4 wins in a row, followed by many losses, then 2 wins. I did not do any experimental attacks with different troop layouts. I went up to 2854 trophies today due to lots of battle success and failure. - 2022, Sunday, January 30th
+
+### 2022, Sunday, February 6th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit better than last week today, and it took a bit less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went up to 2884 trophies today due to lots of battle success and failure. - 2022, Sunday, February 6th
+
+### 2022, Sunday, February 13th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit better than last week today, and it took a lot more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went down to 2729 trophies today due to lots of battle success and failure. - 2022, Sunday, February 13th
+
+### 2022, Sunday, February 20th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit better than last week today, and it took a lot more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went up to 2818 trophies today due to lots of battle success and failure. - 2022, Sunday, February 20th
+
+### 2022, Sunday, February 27th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit better than last week today, and it took a lot more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went up to 2848 trophies today due to lots of battle success and failure. - 2022, Sunday, February 27th
+
+### 2022, Sunday, March 6th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better than last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went up to 2857 trophies today due to lots of battle success and failure. I almost made it to 3000 trophies, but then suffered a series of losses. - 2022, Sunday, March 6th
+
+### 2022, Sunday, March 13th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took a lot more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went up to 2882 trophies today due to lots of battle success and failure. I repeatedly got exactly 50% on some attacks, which was odd. - 2022, Sunday, March 13th
+
+### 2022, Sunday, March 20th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took a lot more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went down to 2762 trophies today due to lots of battle success and failure - 2022, Sunday, March 20th
+
+### 2022, Sunday, March 27th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better than last week today, and it took a lot less time to get 6 wins. I even got 5 wins in a row. I did not do any experimental attacks with different troop layouts. I went up to 2881 trophies today due to lots of battle success and failure. There was 1 battle that I lost where I had a single bat left, untargeted by any defenses. I did the community a favor and didn't wait for the bat to get killed or run out of time, I just promptly ended the battle. I wouldn't have won anyways (as of ending the battle, we both had the same percentage, but my opponent had a second star). I suggest anyone who does strategies like "sneaky archers" or runs into a situation where it takes more than 10 seconds to destroy a single building to just end the battle. Don't waste peoples time. - 2022, Sunday, March 27th
+
+### 2022, Sunday, April 3rd
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit worse than last week today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went up to 2877 trophies today due to lots of battle success and failure - 2022, Sunday, April 3rd
+
+### 2022, Sunday, April 10th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit better than last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went up to 2913 trophies today due to lots of battle success and failure - 2022, Sunday, April 10th
+
+### 2022, Sunday, April 17th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit worse than last week today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went down to 2907 trophies today due to lots of battle success and failure - 2022, Sunday, April 17th
+
+### 2022, Sunday, April 24th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit worse than last week today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I went up to 2988 trophies today due to lots of battle success and failure - 2022, Sunday, April 24th
+
+### 2022, Sunday, May 1st
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took a lot more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped down to 2786 trophies today due to lots of battle success and failure - 2022, Sunday, May 1st
+
+### 2022, Sunday, May 8th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better than last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose up to 2840 trophies today due to lots of battle success and failure - 2022, Sunday, May 8th
+
+### 2022, Sunday, May 15th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better than last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped down to 2816 trophies today due to lots of battle success and failure - 2022, Sunday, May 15th
+
+### 2022, Sunday, May 22nd
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better than last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose up to 2874 trophies today due to lots of battle success and failure - 2022, Sunday, May 22nd
+
+### 2022, Sunday, May 29th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit worse than last week today, and it took a lot more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped down to 2845 trophies today due to lots of battle success and failure - 2022, Sunday, May 29th
+
+### 2022, Sunday, June 5th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better than last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose up to 2877 trophies today due to lots of battle success and failure - 2022, Sunday, June 5th
+
+### 2022, Sunday, June 12th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better than last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped down to 2847 trophies today due to lots of battle success and failure - 2022, Sunday, June 12th
+
+### 2022, Sunday, June 19th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took a lot more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose up 1 trophy to 2848 trophies today due to lots of battle success and failure - 2022, Sunday, June 19th
+
+### 2022, Sunday, June 26th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better than last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose up 157 trophies today (to 2905) trophies today due to lots of battle success and failure - 2022, Sunday, June 26th
+
+### 2022, Sunday, July 3rd
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped down 35 trophies today (to 2,870) trophies today due to lots of battle success and failure - 2022, Sunday, July 3rd
+
+### 2022, Sunday, July 10th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose up 1 trophy today (to 2,871) trophies today due to lots of battle success and failure - 2022, Sunday, July 10th
+
+### 2022, Sunday, July 17th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose up 19 trophies today (to 2,890) trophies today due to lots of battle success and failure - 2022, Sunday, July 17th
+
+### 2022, Sunday, July 24th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did slightly worse than last week today, and it took about the same amount of time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped down 1 trophy today (to 2,889) trophies today due to lots of battle success and failure - 2022, Sunday, July 24th
+
+### 2022, Sunday, July 31st
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did much better than last week today, and it took about the same amount of time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped rose up 60 trophies today (to 2,949) trophies today due to lots of battle success and failure - 2022, Sunday, July 31st
+
+### 2022, Sunday, August 7th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit worse than last week today, and it took a longer amount of time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped down 25 trophies today (to 2,924) trophies today due to lots of battle success and failure - 2022, Sunday, August 7th
+
+### 2022, Sunday, August 14th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took a longer amount of time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped down 83 trophies today (to 2,841) trophies today due to lots of battle success and failure - 2022, Sunday, August 14th
+
+### 2022, Sunday, August 21st
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit better than last week today, and it took less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose up 6 trophies today (to 2,847) trophies today due to lots of battle success and failure - 2022, Sunday, August 21st
+
+### 2022, Sunday, August 28th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit better than last week today, and it took less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose up 87 trophies today (to 2,934) trophies today due to lots of battle success and failure - 2022, Sunday, August 28th
+
+### 2022, Sunday, September 4th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit better than last week today, and it took less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose up 88 trophies today (to 3,046) trophies today due to lots of battle success and failure - 2022, Sunday, September 4th
+
+### 2022, Sunday, September 11th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped down 97 trophies today (to 2,949) trophies today due to lots of battle success and failure. My luck in the 3000+ trophy range peaked today, then ran out. - 2022, Sunday, September 11th
+
+### 2022, Sunday, September 18th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took more time to get 6 wins. I did really well at first, but then got loss after loss. I did not do any experimental attacks with different troop layouts. I dropped down 61 trophies today (to 2,888) trophies today due to lots of battle success and failure. My luck in the 3000+ trophy range came back today, then ran out. - 2022, Sunday, September 18th
+
+### 2022, Sunday, September 25th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit better than last week today, and it took more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose up 24 trophies today (to 2,912) trophies today due to lots of battle success and failure. - 2022, Sunday, September 25th
+
+### 2022, Sunday, October 2nd
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I dropped down 3 trophies today (to 2,909) trophies today due to lots of battle success and failure. - 2022, Sunday, October 2nd
+
+### 2022, Sunday, October 9th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit better than last week today, and it took slightly less time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose up 26 trophies today (to 2,935) trophies today due to lots of battle success and failure. - 2022, Sunday, October 9th
+
+### 2022, Sunday, October 16th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took much more time to get 6 wins. I did not do any experimental attacks with different troop layouts. I began a new strategy where I don't place the battle machine first. I dropped down 144 trophies today (to 2,791) trophies today due to lots of battle success and failure. - 2022, Sunday, October 16th
+
+### 2022, Sunday, October 23rd
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better than last week today, and it took much eless time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose up 39 trophies today (to 2,820) due to lots of battle success and failure. I got 5 wins in a row, followed by several losses, and a final 6th win. - 2022, Sunday, October 23rd
+
+### 2022, Sunday, October 30th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better than last week today, and it took much eless time to get 6 wins. I did not do any experimental attacks with different troop layouts. I rose up 84 trophies today (to 2,904) due to lots of battle success and failure. - 2022, Sunday, October 30th
+
+### 2022, Sunday, November 6th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better than last week today, and it took much less time to get 6 wins. I did not do any experimental attacks with different troop layouts, although I repetitively did a risky, skill-free strategy of placing all night witches behind the battle machine, instead of encircling the base with them. It proved effective several times, gaining a few 3 star victories. I rose up 65 trophies today (to 2,969) due to lots of battle success and failure. - 2022, Sunday, November 6th
+
+### 2022, Sunday, November 13th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit worse than last week today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts, although I repetitively did a risky, skill-free strategy of placing all night witches behind the battle machine, instead of encircling the base with them. It wasn't as effective as last week, but it still worked. I dropped down 52 trophies today (to 2,917) due to lots of battle success and failure. - 2022, Sunday, November 13th
+
+### 2022, Sunday, November 20th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better than last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts, just spamming nightwitches because they are overpowered. I rose up 118 trophies today (to 3,035) due to lots of battle success and failure. - 2022, Sunday, November 20th
+
+### 2022, Sunday, November 27th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did slightly worse than last week today, and it took bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts, just spamming nightwitches because they are overpowered. I rose up 28 trophies today (to 3,063) due to lots of battle success and failure. - 2022, Sunday, November 27th
+
+### 2022, Sunday, December 4th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did significantly worse than last week today, and it took a lot more time to get 6 wins. I did not do any experimental attacks with different troop layouts, just spamming nightwitches because they are overpowered. I got more and more careless as time went on. For one base, I found it was a trap base. I decided to place all of my nightwitches in the structure, but didn't notice the lava launcher was directly in range. This base could have been destroyed easily, as all key targets were on the outskirts of the structure. I dropped down 143 trophies today (to 2,920) due to lots of battle success and failure, but peaked at 3,122 trophies in the beginning. - 2022, Sunday, December 4th
+
+### 2022, Sunday, December 11th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did significantly better than last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts, just spamming nightwitches because they are overpowered. I was slightly strategic today. I rose up 54 trophies today (to 2,974) due to lots of battle success and failure. - 2022, Sunday, December 11th
+
+### 2022, Sunday, December 18th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did significantly better than last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts, just spamming nightwitches because they are overpowered. I had several failures at the start, then got several wins in a row, mostly due to trophy droppers, and pure luck. I was slightly strategic today. I rose up 82 trophies today (to 3,056) due to lots of battle success and failure. - 2022, Sunday, December 18th
+
+### 2022, Sunday, December 25th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did slightly worse than last week today, and it took a bit more time to get 6 wins. I did not do any experimental attacks with different troop layouts, just spamming nightwitches because they are overpowered. I had several successes at the start, along with several failures. At one point, I peaked at 3,115 trophies. I was slightly strategic today. I droppd down 35 trophies today (to 3,021) due to lots of battle success and failure. - 2022, Sunday, December 25th
+
+### 2023, Sunday, January 1st
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did significantly worse than last week today, and it took a lot more time to get 6 wins. I did not do any experimental attacks with different troop layouts, just spamming nightwitches because they are overpowered. I had several successes at the start, along with several failures. I was slightly strategic today. I dropped down 122 trophies today (to 2,899) due to lots of battle success and failure. - 2023, Sunday, January 1st
+
+### 2023, Sunday, January 8th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did slightly better than last week today, and it took a lot less time to get 6 wins. I did not do any experimental attacks with different troop layouts, just spamming nightwitches because they are overpowered. I was not very strategic today. I rose up only 1 trophy today (to 2,900) due to lots of battle success and failure. - 2023, Sunday, January 8th
+
+### 2023, Sunday, January 15th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did extremely better than last week today, and it took significantly less time to get to 6 wins. I did not do any experimental attacks with different troop layouts, just spamming nightwitches because they are overpowered. I was not very strategic today. I rose up only 145 trophies today (to 3,045) due to lots of battle success and failure. - 2023, Sunday, January 15th
+
+<!-- I said "trophies trophies" multiple times, and didn't notice it
+Chariots Chariots
+!-->
+
+### 2023, Sunday, January 22nd
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took significantly more time to get to 6 wins. I did not do any experimental attacks with different troop layouts, just spamming nightwitches because they are overpowered. I was not very strategic today. I dropped down 29 trophies today (to 3,016) due to lots of battle success and failure. - 2023, Sunday, January 22nd
+
+### 2023, Sunday, January 29th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit better than last week today, and it took a bit less time to get to 6 wins. I did not do any experimental attacks with different troop layouts, just spamming nightwitches because they are overpowered. I was not very strategic today. I dropped down 4 trophies today (to 3,012) due to lots of battle success and failure. - 2023, Sunday, January 29th
+
+### 2023, Sunday, February 5th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit better than last week today, and it took a bit less time to get to 6 wins. I did not do any experimental attacks with different troop layouts, just spamming nightwitches because they are overpowered. I was not very strategic today. I dropped down 27 trophies today (to 2,985) due to lots of battle success and failure. Also, I got kicked out of the game in the middle of a battle. There were no issues with my home network, so this was on SUPERCELLs end. Normally, only Boom Beach does this. - 2023, Sunday, February 5th
+
+### 2023, Sunday, February 12th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better than last week today, and it took a lot less time to get to 6 wins. I did not do any experimental attacks with different troop layouts, just spamming nightwitches because they are overpowered. I was not very strategic today. I rose up 94 trophies today (to 3,079) due to lots of battle success and failure. I peaked at 3,107 trophies, and was disappointed that I didn't finish with 3,100+ trophies. - 2023, Sunday, February 12th
+
+### 2023, Sunday, February 19th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took a lot more time to get to 6 wins. I had significant losses at first, but ended up with more trophies than last week, so it was still an overall win. I did not do any experimental attacks with different troop layouts, just spamming nightwitches because they are overpowered. I was not very strategic today. I rose up 31 trophies today (to 3,110) due to lots of battle success and failure. - 2023, Sunday, February 19th
+
+### 2023, Sunday, February 26th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took a lot more time to get to 6 wins. I had significant losses, with very little strategic gameplay. I dropped down 179 trophies today (to 2,931) due to lots of battle success and failure. - 2023, Sunday, February 26th
+
+### 2023, Sunday, March 5th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week today, and it took about the same amount of time to get to 6 wins. I had significant losses, with very little strategic gameplay. I dropped down 63 trophies today (to 2,868) due to lots of battle success and failure. - 2023, Sunday, March 5th
+
+### 2023, Sunday, March 12th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better than last week today, and it took significantly less time to get to 6 wins. I rose up 120 trophies today (to 2,988) due to lots of battle success and failure. - 2023, Sunday, March 12th
+
+### 2023, Sunday, March 19th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse than last week today, and it took significantly more time to get to 6 wins. I dropped down 31 trophies today (to 2,857) due to lots of battle success and failure. - 2023, Sunday, March 19th
+
+### 2023, Sunday, March 26th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better than last week today, and it took significantly less time to get to 6 wins. I rose up 145 trophies today (to 3,002) due to lots of battle success and failure, getting several 3 star wins. - 2023, Sunday, March 26th
+
+### 2023, Sunday, April 2nd
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did worse compared to last week today, and it took more time to get to 6 wins. I rose up 2 trophies today (to 3,004) due to lots of battle success and failure. The battle machine is not the best most of the time. It seems like a wreckless, suicidal minitank that goes for everything that kills it, and often goes away from the troops it should be protecting. The 5122 health isn't that much of an advantage, even with the health recovery, as it can get destroyed very quickly when going against high level bases, sometimes before I can even boost it once or twice. Judging by this, I don't even think a level 80 battle machine would be too much more helpful by itself. It has been failing to protect my night witches lately, and as usual, goes straight for the crusher. - 2023, Sunday, April 2nd
+
+### 2023, Sunday, April 9th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did worse compared to last week today, and it took more time to get to 6 wins. I dropped down 148 trophies today (to 2,856) due to lots of battle success and failure. The battle machine is still killing my night witches by going the wrong way, so I tried an attack without it today, but gave in immediately, as it would be stupid to not use it. - 2023, Sunday, April 9th
+
+### 2023, Sunday, April 16th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit better compared to last week today, and it took less time to get to 6 wins. I dropped down 29 trophies today (to 2,827) due to lots of battle success and failure. - 2023, Sunday, April 16th
+
+### 2023, Sunday, April 23rd
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better compared to last week today, and it took less time to get to 6 wins. I rose up 116 trophies today (to 2,943) due to lots of battle success and failure. - 2023, Sunday, April 23rd
+
+### 2023, Sunday, April 30th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse compared to last week today, and it less time to get to 6 wins. I rose up 9 trophies today (to 2,952) due to lots of battle success and failure. - 2023, Sunday, April 30th
+
+### 2023, Sunday, May 7th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better compared to last week today, and it a lot less time to get to 6 wins. I rose up 120 trophies today (to 3,072) due to lots of battle success and failure. - 2023, Sunday, May 7th
+
+### 2023, Sunday, May 14th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot worse compared to last week today, and it a lot more time to get to 6 wins. I dropped down 144 trophies today (from 3,072 to 2,928) due to lots of battle success and failure. - 2023, Sunday, May 14th
+
+### 2023, Sunday, May 21st
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a lot better compared to last week today, and it a lot less time to get to 6 wins. I rose up 73 trophies today (from 2,928 to 3,001) due to lots of battle success. I am not sure what the criteria is for success now. - 2023, Sunday, May 21st
+
+### 2023, Sunday, May 28th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week, not having any losses, and quickly getting 18 stars. I rose up 44 trophies today (from 3,001 to 3,045) due to lots of battle success. I am not sure what the criteria is for success now. - 2023, Sunday, May 28th
+
+### 2023, Sunday, June 4th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week, only having 1 loss, and quickly getting 18 stars. I rose up 22 trophies today (from 3,045 to 3,067) due to lots of battle success and failure. - 2023, Sunday, June 4th
+
+### 2023, Sunday, June 11th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did about the same as last week, only having 1 loss, where I purposefully just went to get 1 star. I quickly gained 18 stars. I rose up 60 trophies today (from 3,067 to 3,127) due to lots of battle success and failure. - 2023, Sunday, June 11th
+
+### 2023, Sunday, June 18th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did better than last week, I quickly gained 18 stars. I rose up 48 trophies today (from 3,127 to 3,175) due to lots of battle success and failure. - 2023, Sunday, June 18th
+
+### 2023, Sunday, June 25th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did better than last week, I quickly gained 19 stars. I rose up 52 trophies today (from 3,175 to 3,227) due to lots of battle success and failure. I reached the rank Steel III and managed to stay in this rank for the end of the week. - 2023, Sunday, June 25th
+
+### 2023, Sunday, July 2nd
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did slightly worse than last week, but still succeeded. I quickly gained 20 stars. I rose up 54 trophies today (from 3,227 to 3,281) due to lots of battle success and failure. I stayed in Steel III again this week, this update has made it significantly easier to win without trying very hard. - 2023, Sunday, July 2nd
+
+### 2023, Sunday, July 9th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did slightly better than last week. I quickly gained 20 stars. I rose up 77 trophies today (from 3,281 to 3,358) due to lots of battle success and failure. I stayed in Steel III again this week, this update has made it significantly easier to win without trying very hard. - 2023, Sunday, July 9th
+
+### 2023, Sunday, July 16th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did slightly better than last week. I slowly gained 20 stars. I rose up 49 trophies today (from 3,358 to 3,407) due to lots of battle success and failure. I made it to Steel II this week, this update has made it significantly easier to win without trying very hard. It is starting to become a real challenge now. - 2023, Sunday, July 16th
+
+### 2023, Sunday, July 23rd
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did slightly better than last week. I slowly gained 20 stars. I rose up 19 trophies today (from 3,407 to 3,426) due to lots of battle success and failure. The opponents have been easier this week, but still difficult. I managed to stay in Steel II this week, but dropped out multiple times today, while still making it back, this update has made it significantly easier to win without trying very hard. It is starting to become a real challenge now. - 2023, Sunday, July 23rd
+
+### 2023, Sunday, July 30th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did significantly better than last week. I quickly gained 20 stars. I rose up 73 trophies today (from 3,426 to 3,499) due to lots of battle success, not losing a single battle. I have now beaten my previous all-time record of 3,495. - 2023, Sunday, July 30th
+
+### 2023, Sunday, August 6th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did significantly better than last week. I quickly gained 20 stars. I rose up 67 trophies today (from 3,499 to 3,566) due to lots of battle success, not losing a single battle. I have now beaten my previous all-time record of 3,499. - 2023, Sunday, August 6th
+
+### 2023, Sunday, August 13th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did significantly worse than last week. I slowly gained 20 stars, and I dropped down 16 trophies (from 3,566 to 3,548) due to a mixed battle record. - 2023, Sunday, August 13th
+
+### 2023, Sunday, August 20th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did significantly better than last week. I quickly gained 20 stars, and I rose up 8 trophies (from 3,548 to 3,556) due to a mixed battle record. - 2023, Sunday, August 20th
+
+### 2023, Sunday, August 27th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did slightly worse than last week. I slowly gained 20 stars, and I rose up 4 trophies (from 3,556 to 3,560) due to a mixed battle record. - 2023, Sunday, August 27th
+
+### 2023, Sunday, September 3rd
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did better than last week. I quickly gained 20 stars, and I rose up 18 trophies (from 3,560 to 3,578) due to a mixed battle record. - 2023, Sunday, September 3rd
+
+### 2023, Sunday, September 10th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did significantly worse than last week. I slowly gained 20 stars, and I dropped down 89 trophies (from 3,578 to 3,489) almost losing 100 trophies in 22 minutes, due to a very poor battle record. - 2023, Sunday, September 10th
+
+### 2023, Sunday, September 17th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did significantly better than last week. I quickly gained 20 stars, and I rose up 30 trophies (from 3,489 to 3,519) - 2023, Sunday, September 17th
+
+### 2023, Sunday, September 24th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did significantly better than last week. I quickly gained 20 stars, and I rose up 73 trophies (from 3,519 to 3,592) - 2023, Sunday, September 24th
+
+### 2023, Sunday, October 1st
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit worse than last week. I quickly gained 20 stars, and I dropped down 10 trophies (from 3,592 to 3,582) - 2023, Sunday, October 1st
+
+### 2023, Sunday, October 8th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit worse than last week. I slowly gained 20 stars, and I dropped down 9 trophies (from 3,582 to 3,571) - 2023, Sunday, October 8th
+
+### 2023, Sunday, October 15th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did a bit worse than last week. I quickly gained 20 stars, but I dropped down 23 trophies (from 3,581 to 3,548) - 2023, Sunday, October 15th
+
+### 2023, Sunday, October 22nd
+
+I did some attacks, and quickly gained 20 stars. I used my clock tower boost after the second battle (as I forgot initially) and cleaned up some obstacles this week. I had moderate success in battle, doing a lot worse compared to last week. I rose up 27 trophies (from 3,548 to 3,575 trophies) due to a good battle record that stayed moderate over time. I began to upgrade a 3rd firecracker to level 7 today for 2 million gold. With elixir upgrades, I plan to upgrade my night witch to level 20, then my gem mine to level 10. I didn't do anything else here this week. - 2023, Sunday, October 22nd
+
+### 2023, Sunday, October 29th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did significantly better this week. I quickly gained 20 stars, and I rose up to a new record amount of 3654 trophies, rising up 106 trophies today (from 3,548 to 3,654) I managed to stay in Steel League I. - 2023, Sunday, October 29th
+
+### 2023, Sunday, November 5th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did slightly worse this week, but not losing trophies. I quickly gained 20 stars, and I rose up to a new record amount of 3667 trophies, rising up 13 trophies today (from 3,654 to 3,667) I managed to stay in Steel League I again this week. - 2023, Sunday, November 5th
+
+### 2023, Sunday, November 12th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did slightly worse this week, but not losing trophies. I slowly gained 20 stars, and I rose up to a new record amount of 3700 trophies, but fell back down to 3650 trophies today (from 3,667 to 3,650) I managed to stay in Steel League I again this week.  I didn't think that would be possible, due to how difficult the opponents were that I was receiving. - 2023, Sunday, November 12th
+
+### 2023, Sunday, November 19th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did significantly better this week. I quickly gained 20 stars, and I rose up to 3730 trophies (from 3,650 to 3,730) I managed to stay in Steel League I again this week. - 2023, Sunday, November 19th
+
+### 2023, Sunday, November 26th
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did worse this week. I slowly gained 20 stars, and I dropped down 29 trophies (from 3,730 to 3,701) I managed to stay in Steel League I again this week. - 2023, Sunday, November 26th
+
+### 2023, Sunday, December 3rd
+
+I did mostly night witch spamming yet again today. It is extremely effective for the range of 2600-3000 trophies, I did worse this week. I slowly gained 20 stars, and I dropped down 29 trophies (from 3,730 to 3,701) I managed to stay in Steel League I again this week. - 2023, Sunday, December 3rd
+
+### 2023, Sunday, December 10th
+
+I did mostly night witch spamming yet again today. I did slightly worse this week. I slowly gained 20 stars, and I rose up 7 trophies (from 3,713 to 3,720) I managed to stay in Steel League I again this week. - 2023, Sunday, December 10th
+
+### 2023, Sunday, December 17th
+
+I did mostly night witch spamming yet again today. I did significantly better this week. I slowly gained 20 stars, and I rose up 28 trophies (from 3,720 to 3,748) I managed to stay in Steel League I again this week. - 2023, Sunday, December 17th
+
+### 2023, Sunday, December 24th
+
+I did mostly night witch spamming yet again today. I did significantly worse this week. I slowly gained 20 stars, and I dropped down 119 trophies (from 3,748 to 3,629) I managed to stay in Steel League I again this week. - 2023, Sunday, December 24th
+
+### 2023, Sunday, December 31st
+
+I did mostly night witch spamming yet again today. I did better this week. I slowly gained 20 stars, and I rose up 15 trophies (from 3,629 to 3,646) I managed to stay in Steel League I again this week. - 2023, Sunday, December 31st
+
+### 2024, Sunday, January 7th
+
+I did mostly night witch spamming yet again today. I did better this week. I slowly gained 20 stars, and I rose up 19 trophies (from 3,646 to 3,665) I managed to stay in Steel League I again this week, but came very close to dropping out. - 2024, Sunday, January 7th
+
+### 2024, Sunday, January 14th
+
+I did mostly night witch spamming yet again today. I did better this week. I slowly gained 30 stars, and I dropped down 140 trophies (from 3,665 to 3,525)  the game gave me too many difficult opponents (my roaster was upgrading, this probably really didn't help, but I needed the resources) I finally dropped out of Steel League I today, going back to Steel League II. I will eventually make it back to Steel League I. I used a clock tower potion and a star jar to continue playing. - 2024, Sunday, January 14th
+
+### 2024, Sunday, January 21st
+
+I did mostly night witch spamming yet again today. I did better this week. I slowly gained 20 stars, and I rose up 56 trophies (from 3,525 to 3,581) I stayed in Steel League II today. I will eventually make it back to Steel League I. - 2024, Sunday, January 21st
+
+### 2024, Sunday, January 28th
+
+I did mostly night witch spamming yet again today. I did better this week. I slowly gained 20 stars, and I rose up 31 trophies (from 3,581 to 3,612) I made it back to Steel League I today. - 2024, Sunday, January 28th
+
+### 2024, Sunday, February 4th
+
+I did mostly night witch spamming yet again today, although I changed my strategy a bit, and replaced 2 night witches with 2 P.E.K.K.A.s, which worked. I did slightly worse this week. I slowly gained 20 stars, and I rose up 12 trophies (from 3,612 to 3,624) I stayed in Steel League I today. - 2024, Sunday, February 4th
+
+### 2024, Sunday, February 11th
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which still worked. I did slightly better this week. I slowly gained 20 stars, and I rose up 13 trophies (from 3,624 to 3,637) I stayed in Steel League I today. - 2024, Sunday, February 11th
+
+### 2024, Sunday, February 18th
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which still worked this week. I did slightly better this week. I slowly gained 30 stars, and I rose up 26 trophies (from 3,637 to 3,663) I used a builder star jar today to earn an additional star bonus. I stayed in Steel League I today. - 2024, Sunday, February 18th
+
+### 2024, Sunday, February 25th
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which still worked this week. I did better this week. I quickly gained 20 stars, and I rose up 40 trophies (from 3,663 to 3,703) I stayed in Steel League I today. - 2024, Sunday, February 25th
+
+### 2024, Sunday, March 3rd
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which still worked this week. I did slightly worse this week. I quickly gained 20 stars, and I dropped down 3 trophies (from 3,703 to 3,700) I stayed in Steel League I today. - 2024, Sunday, March 3rd
+
+### 2024, Sunday, March 10th
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which still worked this week. I did significantly worse this week. I quickly gained 20 stars, and I dropped down 47 trophies (from 3,700 to 3,653) I stayed in Steel League I today. - 2024, Sunday, March 10th
+
+### 2024, Sunday, March 17th
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which still worked this week. I did significantly worse this week. I slowly gained 30 stars, and I dropped down 59 trophies (from 3,653 to 3,594) I feel out of Steel League I today, and ended in Steel League II. - 2024, Sunday, March 17th
+
+### 2024, Sunday, March 24th
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which still worked this week. I did significantly better this week. I quickly gained 20 stars, and I rose up 48 trophies (from 3,594 to 3,642) I went back into Steel League I today, and ended in Steel League I. - 2024, Sunday, March 24th
+
+### 2024, Sunday, March 31st
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which still worked this week. I did better this week. I quickly gained 20 stars, and I rose up 61 trophies (from 3,642 to 3,703) I easily stayed and ended in Steel League I today. - 2024, Sunday, March 31st
+
+### 2024, Sunday, April 7th
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which still worked this week. I did slightly worse this week. I slowly gained 20 stars, and I rose up 21 trophies (from 3,703 to 3,724) I stayed and ended in Steel League I today. - 2024, Sunday, April 7th
+
+### 2024, Sunday, April 14th
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which didn't work well this week. I did significantly worse this week. I slowly gained 20 stars, and I dropped down 83 trophies (from 3,724 to 3,641) I stayed and ended in Steel League I today. - 2024, Sunday, April 14th
+
+### 2024, Sunday, April 21st
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which didn't work well this week. I did slightly better this week, but still very poorly. I slowly gained 20 stars, and I dropped down 30 trophies (from 3,641 to 3,611) I stayed and ended in Steel League I today, briefly dropping out once. - 2024, Sunday, April 21st
+
+### 2024, Sunday, April 28th
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which worked well this week. I did slightly worse this week, but still didn't drop any trophies. I used a builder star jar today to get another star bonus. I quickly gained 30 stars, and I rose up 30 trophies (from 3,611 to 3,641) I had to wait for my battle machine to finish upgrading before battling, which took over 33 minutes (with a clock tower boost) I stayed and ended in Steel League I today, briefly dropping out multiple times. - 2024, Sunday, April 28th
+
+### 2024, Sunday, May 5th
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which worked well this week. I did slightly worse this week, but still didn't drop any trophies. I used a builder star jar today to get another star bonus. I quickly gained 30 stars, and I rose up 42 trophies (from 3,641 to 3,683) I stayed and ended in Steel League I today. - 2024, Sunday, May 5th
+
+### 2024, Sunday, May 12th
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which worked well this week. I did significantly worse this week, with a higher level of failure in battle, but not dropping very many trophies, as the last 2 players didn't really try very hard. I dropped down 28 trophies (from 3,683 to 3,665 trophies) due to a very mixed battle record. I stayed in Steel League I today, and ended the session in Steel League I, although I dropped to Steel League II briefly. - 2024, Sunday, May 12th
+
+### 2024, Sunday, May 19th
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which worked well this week. I did better this week, with a higher level of success in battle. I rose up 57 trophies (from 3,665 to 3,720 trophies) due to a very mixed battle record. I stayed in Steel League I today, and ended the session in Steel League I. I almost beat my trophy record today. - 2024, Sunday, May 19th
+
+### 2024, Sunday, May 26th
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which worked well this week. I did worse this week, with a higher level of failure in battle. I dropped down 32 trophies (from 3,720 to 3,688 trophies) due to a mixed battle record. I stayed in Steel League I today, and ended the session in Steel League I. - 2024, Sunday, May 26th
+
+### 2024, Sunday, June 2nd
+
+I did mostly night witch spamming yet again today, although I kept my strategy slightly different, replacing 2 night witches with 2 P.E.K.K.A.s, which worked well this week. I did better this week, with a higher level of success in battle. I rose up 25 trophies (from 3,688 to 3,713 trophies) due to a mixed battle record. I stayed in Steel League I today, and ended the session in Steel League I. - 2024, Sunday, June 2nd
+
+### 2024, Sunday, June 9th
+
+I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did worse this week, with a higher level of failure in battle. I dropped down 17 trophies (from 3,713 to 3,696 trophies) due to a mixed battle record. I stayed in Steel League I today, and ended the session in Steel League I. - 2024, Sunday, June 9th
+
+### 2024, Sunday, June 16th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did worse this week, with a higher level of failure in battle. I dropped down 87 -trophies (from 3,696 to 3,609 trophies) due to a poor battle record. I barely stayed in Steel League I today, and ended the session in Steel League I. - 2024, Sunday, June 16th
+
+### 2024, Sunday, June 23rd
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did worse this week, with a higher level of failure in battle.
+- I rose up 55 trophies (from 3,609 to 3,664 trophies) due to a mixed battle record.
+- I stayed in Steel League I today, and ended the session in Steel League I. - 2024, Sunday, June 23rd
+
+### 2024, Sunday, June 30th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did worse this week, with a higher level of failure in battle.
+- I dropped down 36 trophies (from 3,664 to 3,618 trophies) due to a poor battle record.
+- I stayed in Steel League I today, and ended the session in Steel League I. I briefly dropped out and went to Steel League II. - 2024, Sunday, June 30th
+
+### 2024, Sunday, July 7th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did worse this week, with a higher level of failure in battle.
+- There was 1 battle that really frustrated me. Only 1 building was left, and there was less than 10 seconds on the clock. I went to get a screenshot, and my phone decided to freeze up, and didn't respond until the time had run out. I felt that if I could have used my battle machine ability right then, I could have gotten the 3rd star. I was so frustrated by this.
+- I rose up 20 trophies (from 3,618 to 3,638 trophies) due to a poor battle record.
+- I stayed in Steel League I today, and ended the session in Steel League I. I never dropped out this week. - 2024, Sunday, July 7th
+
+### 2024, Sunday, July 14th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did moderately well this week, with a higher level of failure in battle, due to more competent oppoinents
+- I rose up only 2 trophies (from 3,638 to 3,640 trophies) due to a mixed battle record.
+- I stayed in Steel League I today, and ended the session in Steel League I. I never dropped out this week. - 2024, Sunday, July 14th
+
+### 2024, Sunday, July 21st
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did moderately well this week, with a higher level of success in battle, but didn't gain as many trophies, as I had competent opponents. I conducted multiple 6 star wins.
+- I rose up 18 trophies (from 3,640 to 3,658 trophies) due to a mixed battle record.
+- I stayed in Steel League I today, and ended the session in Steel League I. I never dropped out this week. - 2024, Sunday, July 21st
+
+### 2024, Sunday, July 28th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did moderately well this week, with a higher level of success in battle, but didn't gain as many trophies, as I had harder opponents. I used a strategy of delaying the deployment of additional night witches today.
+- I dropped down 19 trophies (from 3,658 to 3,639 trophies) due to a mixed battle record.
+- I stayed in Steel League I today, and ended the session in Steel League I. I never dropped out this week. - 2024, Sunday, July 28th
+
+### 2024, Sunday, August 4th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did moderately well this week, with a higher level of success in battle. I used a strategy of delaying the deployment of additional night witches today.
+- I rose up 26 trophies (from 3,639 to 3,665 trophies) due to a mixed battle record.
+- I stayed in Steel League I today, and ended the session in Steel League I. I never dropped out this week. - 2024, Sunday, August 4th
+
+### 2024, Sunday, August 11th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did moderately well this week, with a higher level of success in battle in the beginning, and a lower level of success in the end. I used a strategy of delaying the deployment of additional night witches today.
+- I dropped down 46 trophies (from 3,665 to 3,619 trophies) due to a mixed battle record. At one point, I was above 3700 trophies. I stayed in Steel League I today, and didn't drop out at all, although I was really close to doing so. - 2024, Sunday, August 11th
+
+### 2024, Sunday, August 18th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did severely badly this week, with a higher level of failure.
+- I dropped down 69 trophies (from 3,619 to 3,550 trophies) due to a poor battle record. At one point, I was about to drop below 3500 trophies. I dropped out of Steel League I today, and ended in Steel League II. I used a builder star jar today.
+- I had an extremely high level of failure in battle this week, doing severely worse compared to last week. - 2024, Sunday, August 18th
+
+### 2024, Sunday, August 25th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did badly this week, with a lower level of failure.
+- I had a low level of success in battle this week, doing slightly worse compared to last week.
+- I dropped down 18 trophies (from 3,550 to 3,532 trophies) due to a poor battle record. I stayed in Steel League II today, and did not make it back to Steel League I. - 2024, Sunday, August 25th
+
+### 2024, Sunday, September 1st
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did very badly this week, with a higher level of failure.
+- I had a very low level of success in battle this week, doing significantly worse compared to last week.
+- I dropped down 90 trophies (from 3,532 to 3,442 trophies) due to a poor battle record. I stayed in Steel League II today, and did not make it back to Steel League I. - 2024, Sunday, September 1st
+
+### 2024, Sunday, September 8th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did very good this week, with a higher level of success.
+- I had a very high level of success in battle this week, doing significantly better compared to last week. All 4 attacks were 200% (perfect) attacks. I gained 200 trophies from this, but at the same time, my opponents took some from me, so I didn't make it back to Steel League I just yet.
+- I rose up 121 trophies (from 3,442 to 3,563 trophies) due to a very successful battle record. I stayed in Steel League II today, and did not make it back to Steel League I, although I came close. I don't know how I did so well while my roaster was still upgrading.
+- I decided to upgrade my battle copter to level 24 this week for 3.4 million elixir. I didn't do any other upgrades this week.
+- This is all that happened in the builder base this week. - 2024, Sunday, September 8th
+
+### 2024, Sunday, September 15th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did very good this week, with a lower level of success (but still very good, just not all 200% perfect attacks)
+- I had a high level of success in battle this week, doing slightly worse compared to last week. I made it back into Steel League I, and stayed there for the rest of the session.
+- I rose up 71 trophies (from 3,563 to 3,634 trophies) due to a very successful battle record.
+- This is all that happened in the builder base this week. - 2024, Sunday, September 15th
+
+### 2024, Sunday, September 22nd
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did very poorly this week, with a higher level of failure.
+- I fell back to Steel League II, and never made it back to Steel League I this week.
+- I dropped down 80 trophies (from 3,634 to 3,554 trophies) due to a very poor battle record.
+- This is all that happened in the builder base this week. - 2024, Sunday, September 22nd
+
+### 2024, Sunday, September 29th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I did better this week, making it back to Steel League I, and remaining there for the rest of the session
+- I rose up 75 trophies (from 3,554 to 3,629 trophies) due to a moderate battle record.
+- This is all that happened in the builder base this week. - 2024, Sunday, September 29th
+
+### 2024, Sunday, October 6th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I had a lower level of success in battle this week, doing worse compared to last week. I fell back into Steel League II, making it back to Steel League I a couple of times, but ending the session in the lower rank.
+- I dropped down 51 trophies (from 3,629 to 3,578 trophies) due to a poor battle record. The lack of success was likely due to my roaster still upgrading to max level 10.
+- This is all that happened in the builder base this week. - 2024, Sunday, October 6th
+
+### 2024, Sunday, October 13th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I had a higher level of success in battle this week, doing slightly better compared to last week. I used a builder star jar today to gain more rewards, and also make it back into Steel League I, after dropping in and out multiples today.
+- I had a moderate level of success in battle this week, doing worse compared to last week. I fell back into Steel League II, making it back to Steel League I a couple of times, but ending the session in Steel League I
+- I rose up 28 trophies (from 3,578 to 3,606 trophies) due to a good battle record.
+- This is all that happened in the builder base this week. - 2024, Sunday, October 13th
+
+### 2024, Sunday, October 20th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I had a higher level of success in battle this week, doing significantly better compared to last week. I stayed in Steel League I this week.
+- I rose up 87 trophies (from 3,606 to 3,693 trophies) due to a great battle record.
+- This is all that happened in the builder base this week. - 2024, Sunday, October 20th
+
+### 2024, Sunday, October 27th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I had a lower level of success in battle this week, doing slightly better compared to last week. I stayed in Steel League I this week.
+- I rose up 6 trophies (from 3,693 to 3,699 trophies) due to an average battle record.
+- This is all that happened in the builder base this week. - 2024, Sunday, October 27th
+
+### 2024, Sunday, November 3rd
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I had a lower level of success in battle this week, doing slightly worse compared to last week. I stayed in Steel League I this week.
+- I dropped down 21 trophies (from 3,699 to 3,678 trophies) due to an mixed battle record.
+- This is all that happened in the builder base this week. - 2024, Sunday, November 3rd
+
+### 2024, Sunday, November 10th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I had a lower level of success in battle this week, doing worse compared to last week. I stayed in Steel League I this week.
+- I dropped down 56 trophies (from 3,678 to 3,622 trophies) due to a poor battle record. My air bombs upgrading may have played a role in this.
+- This is all that happened in the builder base this week. - 2024, Sunday, November 10th
+
+### 2024, Sunday, November 17th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I had a lower level of success in battle this week, doing slightly better compared to last week. I dropped out of Steel League I today, going back to Steel League II and staying there.
+- I dropped down 28 trophies (from 3,622 to 3,594 trophies) due to a poor battle record.
+- This is all that happened in the builder base this week. - 2024, Sunday, November 17th
+
+### 2024, Sunday, November 24th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I had a slightly higher level of success in battle this week, doing slightly better compared to last week.  I rose up to Steel League I a few times today, but always fell back to Steel League II, and stayed there to end the session, by a single trophy.
+- I rose up 5 trophies (from 3,594 to 3,599 trophies) due to a poor battle record.
+- This is all that happened in the builder base this week. - 2024, Sunday, November 24th
+
+### 2024, Sunday, December 1st
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I had a slightly lower level of success in battle this week, doing slightly worse compared to last week.  I stayed in Steel League II.
+- I dropped down 12 trophies (from 3,599 to 3,587 trophies) due to a poor battle record.
+- This is all that happened in the builder base this week. - 2024, Sunday, December 1st
+
+### 2024, Sunday, December 8th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I had a lower level of success in battle this week, doing worse compared to last week.  I stayed in Steel League II.
+- I dropped down 28 trophies (from 3,587 to 3,559 trophies) due to a poor battle record.
+- My air bombs were upgrading during all battles, which likely impacted my defense.
+- This is all that happened in the builder base this week. - 2024, Sunday, December 8th
+
+### 2024, Sunday, December 15th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I rose back up to Steel League I this week.
+- I had a high level of success in battle this week, doing significantly better compared to last week.
+- I rose up 101 trophies (from 3,559 to 3,660 trophies) due to a very successful battle record.
+- This is all that happened in the builder base this week. - 2024, Sunday, December 15th
+
+### 2024, Sunday, December 22nd
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I stayed in Steel League I this week.
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I this week.
+- I had a high level of success in battle this week, doing slightly worse compared to last week.
+- I rose up 43 trophies (from 3,660 to 3,703 trophies) due to a successful battle record.
+- This is all that happened in the builder base this week. - 2024, Sunday, December 22nd
+
+### 2024, Sunday, December 29th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I stayed in Steel League I this week.
+- I had a mixed level of success in battle this week, doing slightly worse compared to last week, but not dropping any trophies.
+- I rose up 7 trophies (from 3,703 to 3,710 trophies) due to a mixed battle record.
+- This is all that happened in the builder base this week. - 2024, Sunday, December 29th
+
+### 2025, Sunday, January 5th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I ranked up to Titanium League III this week for the first time.
+- I had a mixed level of success in battle this week, doing better compared to last week, but not dropping any trophies. Most of my attacks were weak, but for some reason, all of the defenses were very good.
+- I rose up 91 trophies (from 3,710 to 3,801 trophies) due to a good battle record. I reached a new all-time record of 3801 trophies.
+- This is all that happened in the builder base this week. - 2025, Sunday, January 5th
+
+### 2025, Sunday, January 12th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I briefly dropped back down to Steel League I today, but made it back to Titanium League III, and beat my trophy record again.
+- I had a mixed level of success in battle this week, doing slightly worse compared to last week, but not dropping any trophies. Several of my attacks were weak, but the defenses were good or modest most of the time.
+- I rose up 50 trophies (from 3,801 to 3,851 trophies) due to a good battle record. I reached a new all-time record of 3851 trophies.
+- This is all that happened in the builder base this week. - 2025, Sunday, January 12th
+
+### 2025, Sunday, January 19th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I dropped back down to Steel League I today, having numerous battles end with 1 or 2 stars, with just 1 battle going above that (gaining 4 stars)
+- I had a poor level of success in battle this week, doing significantly worse compared to last week. All of my attacks were weak, but the defenses were modest most of the time, letting me stay in Titanium League III until near the end of the battle sessions, before dropping down.
+- I dropped down 87 trophies (from 3,851 to 3,764 trophies) due to a poor battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, January 19th
+
+### 2025, Sunday, January 26th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I stayed down in Steel League I today, having a poor battle record.
+- I had a poor level of success in battle this week, doing worse compared to last week. Part of this may be because one of my archer towers was upgrading to level 9 during all battles. I also used a builder star jar today.
+- I dropped down 53 trophies (from 3,764 to 3,711 trophies) due to a poor battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, January 26th
+
+### 2025, Sunday, February 2nd
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I stayed in Steel League I today, although I briefly reached Titanium League III.
+- I had a moderate level of success in battle this week, doing slightly better compared to last week. I had several relatively easy opponents in the beginning, including a lot of builder hall 9 bases
+- This is all that happened in the builder base this week. - 2025, Sunday, February 2nd
+
+### 2025, Sunday, February 9th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I stayed in Steel League I today.
+- I had a low level of success in battle this week, doing worse compared to last week.
+- I dropped down 64 trophies (from 3,749 to 3,685 trophies) due to a poor battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, February 9th
+
+### 2025, Sunday, February 16th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I stayed in Steel League I today.
+- I had a low level of success in battle this week, doing close to the same compared to last week.
+- I dropped down 39 trophies (from 3,685 to 3,646 trophies) due to a poor battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, February 16th
+
+### 2025, Sunday, February 23rd
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I stayed in Steel League I today.
+- I had a low level of success in battle this week, doing better compared to last week.
+- I rose up 3 trophies (from 3,646 to 3,649 trophies) due to a poor battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, February 23rd
+
+### 2025, Sunday, March 2nd
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I briefly dropped down to Steel League II today, but ended in Steel League I.
+- I had a low level of success in battle this week, doing worse compared to last week.
+- I dropped down 28 trophies (from 3,649 to 3,621 trophies) due to a poor battle record.
+- My archer tower was still upgrading to level 9 this week, which may have impaired my success in battle slightly.
+- This is all that happened in the builder base this week. - 2025, Sunday, March 2nd
+
+### 2025, Sunday, March 9th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did relatively well, due to several low-level bases. I also had a long pause during battles, as I was doing other things around this time.
+- I had a good level of success in battle this week, doing better compared to last week.
+- I rose up 44 trophies (from 3,621 to 3,665 trophies) due to a mixed battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, March 9th
+
+### 2025, Sunday, March 16th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did relatively well again this week.
+- I had a good level of success in battle this week, doing similarly to last week.
+- I rose up 30 trophies (from 3,665 to 3,695 trophies) due to a mixed battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, March 16th
+
+### 2025, Sunday, March 23rd
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did poorly compared to last week. I had several small gains in the beginning, then lost all of them.
+- I had a poor level of success in battle this week, doing worse compared to last week.
+- I dropped down 11 trophies (from 3,695 to 3,684 trophies) due to a mixed battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, March 23rd
+
+### 2025, Sunday, March 30th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did poorly compared to last week. I had several small gains in the beginning, then lost all of them.
+- I had a moderate level of success in battle this week, doing slightly better compared to last week. I had several good attacks, but also some poor defenses.
+- I rose up 8 trophies (from 3,684 to 3,692 trophies) due to a mixed battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, March 30th
+
+### 2025, Sunday, April 6th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did  did significantly better this week.
+- I had a high level of success in battle this week, doing significantly better compared to last week. I had several good attacks, and could have ended in a higher position, if there wasn't a 200% attack against my base.
+- I rose up 43 trophies (from 3,692 to 3,735 trophies) due to a decent battle record.
+- A defensive building was also upgrading during all attacks.
+- This is all that happened in the builder base this week. - 2025, Sunday, April 6th
+
+### 2025, Sunday, April 13th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did significantly better this week.
+- I had a high level of success in battle this week, doing significantly better compared to last week. Most of my attacks were average or moderate, while defenses were almost always very good.
+- I rose up 45 trophies (from 3,735 to 3,780 trophies) due to a decent battle record.
+- No defensive buildings were upgrading during any of the attacks.
+- This is all that happened in the builder base this week. - 2025, Sunday, April 13th
+
+### 2025, Sunday, April 20th
+
+- I did mostly night witch spamming yet again today, along with 2 P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did worse this week.
+- I had a moderate level of success in battle this week, doing worse compared to last week. Most of my attacks were poor, average or moderate, while defenses were mostly okay. I used a builder star jar today to go for 30 stars, instead of 20, so that I could do a better building upgrade.
+- I dropped down 31 trophies (from 3,780 to 3,749 trophies) due to a poor battle record.
+- No defensive buildings were upgrading during any of the attacks.
+- This is all that happened in the builder base this week. - 2025, Sunday, April 20th
+
+### 2025, Sunday, April 27th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I stayed in Steel League I today, and did better this week.
+- I had a moderate level of success in battle this week, doing better compared to last week. All of my attacks resulted in 2 stars each, except for 1 attack, which was a 6 star attack. I did not use a builder star jar this week.
+- I rose up 21 trophies (from 3,749 to 3,770 trophies) due to a mixed battle record.
+- My cannon was still upgrading to level 9 this week during all of my attacks.
+- This is all that happened in the builder base this week. - 2025, Sunday, April 27th
+
+### 2025, Sunday, May 4th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I rose up to Titanium League III today, and managed to stay there.
+- I had a good level of success in battle this week, doing better compared to last week. Most of my attacks were good or moderate, while most defenses (especially in the later portion) were very good.
+- I rose up 38 trophies (from 3,770 to 3,808 trophies) due to a good battle record.
+- No buildings were upgrading during any attacks today. The same won't be true next week.
+- This is all that happened in the builder base this week. - 2025, Sunday, May 4th
+
+### 2025, Sunday, May 11th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. I also used 1 clock tower potion, and 2 builder star jars this week
+- I had a very low level of success in battle this week, doing significantly worse compared to last week. There were several defenses in a row that resulted in the opponent getting 200% and I dropped back down to Steel League I multiple times, and ended there, over 100 trophies down.
+- I dropped down 119 trophies (from 3,808 to 3,689 trophies) due to a very poor battle record.
+- My cannon was still upgrading to level 10 today during all battles.
+- This is all that happened in the builder base this week. - 2025, Sunday, May 11th
+
+### 2025, Sunday, May 18th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that.
+- I had a low level of success in battle this week, doing significantly better compared to last week.
+- I rose up 20 trophies (from 3,689 to 3,709 trophies) due to a limited battle record.
+- No buildings were upgraded during any attacks today. 
+- This is all that happened in the builder base this week. - 2025, Sunday, May 18th
+
+### 2025, Sunday, May 25th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that.
+- I had a moderate level of success in battle this week, doing slightly better compared to last week.
+- I rose up 31 trophies (from 3,709 to 3,740 trophies) due to a limited battle record.
+- There was 1 battle that failed. I was waiting for the game to find an opponent, but it was taking a long time. Shortly after as I went to cancel, it found an opponent, and thus my attack was a no troop, 0% attack. It really shouldn't have even counted. I didn't lose too many trophies from this mistake.
+- This is all that happened in the builder base this week. - 2025, Sunday, May 25th
+
+### 2025, Sunday, June 1st
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that.
+- I had a moderate level of success in battle this week, doing slightly worse compared to last week.
+- I rose up 30 trophies (from 3,740 to 3,770 trophies) due to a limited battle record.
+- I briefly made it back to Titanium League III today, but dropped back down before the battle session ended.
+- This is all that happened in the builder base this week. - 2025, Sunday, June 1st
+
+### 2025, Sunday, June 8th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost after the first battle, as I forgot to start it beforehand, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, or a star jar potion.
+- I had a very poor level of success in battle this week, doing significantly worse compared to last week.
+- I dropped down 72 trophies (from 3,770 to 3,698 trophies) due to a poor battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, June 8th
+
+### 2025, Sunday, June 15th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, but I did use a star jar potion, so that I would have more gold next week.
+- I had a moderate level of success in battle this week, doing significantly better compared to last week.
+- I rose up 24 trophies (from 3,698 to 3,722 trophies) due to a mixed battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, June 15th
+
+### 2025, Sunday, June 22nd
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, but I did use a star jar potion, so that I would have enough gold to do an upgrade
+- I had a moderate level of success in battle this week, doing better compared to last week.
+- I rose up 38 trophies (from 3,722 to 3,760 trophies) due to a mixed battle record.
+- I have a defensive building upgrading now (the upgrade started after the last battle from today) it will likely affect the performance of my defenses next week, as it is a 12 day upgrade.
+- This is all that happened in the builder base this week. - 2025, Sunday, June 22nd
+
+### 2025, Sunday, June 29th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a good level of success in battle this week, doing better compared to last week, although defenses were poor, causing me to gain less trophies. I briefly reached Titanium League III a few times today, but ultimately went back down to Steel League I.
+- I rose up 29 trophies (from 3,760 to 3,789 trophies) due to a good battle record.
+- I began to upgrade my giant cannon to max level 10 for 5,700,000 gold last week. The upgrade won't be finished until 2025, July, and may have impacted my defenses today, as it was upgrading and de-activated during all battles.
+- This is all that happened in the builder base this week. - 2025, Sunday, June 29th
+
+### 2025, Sunday, July 6th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a good level of success in battle this week, doing better compared to last week. I got close to a new trophy record, but dropped down a little bit, although I stayed firmly in Titanium League III by the end of the session.
+- I rose up 65 trophies (from 3,789 to 3,854 trophies) due to a good battle record.
+- No buildings were upgrading during any battles today, although I began to upgrade an archer tower to level 9 after the last battle, and it won't finish by next week, so it might affect next weeks defenses.
+- This is all that happened in the builder base this week. - 2025, Sunday, July 6th
+
+### 2025, Sunday, July 13th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a good level of success in battle this week, doing better compared to last week. I got evne closer to a new trophy record, and I stayed firmly in Titanium League III by the end of the session.
+- I rose up 79 trophies (from 3,854 to 3,933 trophies) due to a good battle record.
+- I began to upgrade a hidden tesla to level 8 this week for 3,100,000 gold. One building (an archer tower) was upgrading during all attacks this week. All of the troops that I actively use in the builder base are now max level.
+- This is all that happened in the builder base this week. - 2025, Sunday, July 13th
+
+### 2025, Sunday, July 20th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a good level of success in battle this week, doing slightly worse to last week. I briefly attained a new trophy record of 4,009 trophies, also briefly making it to Titanium League II. I dropped back down a little bit, but still stayed firmly in Titanium League III by the end of the session.
+- I rose up 43 trophies (from 3,933 to 3,976 trophies) due to a good battle record.
+- I did not do any building or troop upgrades this week. I plan to save up, and upgrade my cannon cart next, instead of upgrading the electro wizard. I have already maxed out all of the troops I use, so I am maxing out other troops now.
+- This is all that happened in the builder base this week. - 2025, Sunday, July 20th
+
+### 2025, Sunday, July 27th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a good level of success in battle this week, doing slightly better to last week. I reached a new trophy record of 4,021, and ended the session with this trothy count, also ending in Titanium League II. My builder base trophy record is getting close to double that of my home village trophy record.
+- I rose up 45 trophies (from 3,976 to 4,021 trophies) due to a good battle record.
+- I began to upgrade my cannon cart troop to level 19 for 5,300,000 elixir today. I did not upgrade anything else this week, although I am increasingly considering upgrading some of my walls, so that they can just be upgraded with elixir, instead of gold.
+- This is all that happened in the builder base this week. - 2025, Sunday, July 27th
+
+### 2025, Sunday, August 3rd
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a good level of success in battle this week, doing slightly worse compared to last week. I reached another new trophy record of 4,054, and ended the session with this trothy count, also ending in Titanium League II. My builder base trophy record is getting close to double that of my home village trophy record.
+- I rose up 33 trophies (from 4,021 to 4,054 trophies) due to a good battle record.
+- I decided to upgrade several of my walls using elixir, as the troop upgrades don't seem worth it, since all of the troops I use are already max level. After all battles today, I began to upgrade my mega tesla to max level 10 for 5,800,000 gold. This upgrade will take 12 days, so my defense next week won't be as good.
+- This is all that happened in the builder base this week. - 2025, Sunday, August 3rd
+
+### 2025, Sunday, August 10th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a decent level of success in battle this week, doing slightly worse compared to last week. I reached another new trophy record of 4,067, but dropped down to 4,057, ending the session in Titanium League II. My builder base trophy record is getting close to double that of my home village trophy record.
+- I rose up 3 trophies (from 4,054 to 4,057 trophies) due to a decent battle record. I wasn't doing as well, as my attacks were poor, and my defenses weren't the best, possibly due to my mega tesla upgrading to max level 10
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me)
+- This is all that happened in the builder base this week. - 2025, Sunday, August 10th
+
+### 2025, Sunday, August 17th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor did I use a star jar potion.
+- I had a poor level of success in battle this week, doing worse compared to last week. I began to gradually fall out of Steel League II, before I reached another new trophy record of 4,083, but dropped down to 4,059. Before that, I was close to dropping to 4,000 trophies, but I managed to end the session in Titanium League II. My builder base trophy record is getting close to double that of my home village trophy record.
+- I rose up 2 trophies (from 4,057 to 4,059 trophies) due to a poor battle record. I wasn't doing as well, as my attacks were poor, and my defenses were modest. No buildings were upgrading during conflict this week.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I didn't do any building upgrades this week.
+- This is all that happened in the builder base this week. - 2025, Sunday, August 17th
+
+### 2025, Sunday, August 24th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, but I did use a star jar potion.
+- I had a poor level of success in battle this week, doing worse compared to last week. I began to gradually fall out of Steel League II, although I managed to stay in this league for another week. Before that, I was close to dropping to 4,000 trophies, but I managed to end the session in Titanium League II. My builder base trophy record is getting close to double that of my home village trophy record.
+- I dropped down 35 trophies (from 4,059 to 4,024 trophies) due to a poor battle record. I wasn't doing as well, as my attacks were poor, and my defenses were even poorer. No buildings were upgrading during conflict this week, although one of my archer towers won't be active during battles next week.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I also began to upgrade a second archer tower to max level 10 for 4,600,000 gold, which will take 9 days. I also spent a small amount of gold on some walls that weren't high enough level to be upgraded with elixir.
+- This is all that happened in the builder base this week. - 2025, Sunday, August 24th
+
+### 2025, Sunday, August 31st
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, but I did use a star jar potion.
+- I had a poor level of success in battle this week, doing slightly better compared to last week. I began to gradually fall out of Steel League II, dropping out briefly, before rising back up, and barely holding in the league.
+- I dropped down 20 trophies (from 4,024 to 4,004 trophies) due to a poor battle record. I wasn't doing as well, as my attacks were moderate, and my defenses were very poor. 1 building (a level 9 archer tower) was upgrading during all attacks today.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I did not do any other upgrades this week.
+- This is all that happened in the builder base this week. - 2025, Sunday, August 31st
+
+### 2025, Sunday, September 7th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, but I did use a star jar potion.
+- I had a poor level of success in battle this week, doing slightly worse compared to last week. I dropped out of Steel League II, and ended the session in Steel League III, never making it back to Steel League II this week.
+- I dropped down 26 trophies (from 4,004 to 3,978 trophies) due to a poor battle record. I wasn't doing as well, as my attacks were moderate, and my defenses were very poor. 1 building (a mega mine) was upgradinf to level 10 during all attacks.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I have become a little careless with my gold, and spent  alot of gold on walls this week, instead of saving up for building upgrades. I also upgraded a mega mine to level 10 for 2,375,000 gold. Many walls were upgraded and moved. I hope to get all of the walls upgraded to level 6 or higher, so that I can spend elixir (instead of gold) to upgrade them. This will require me to upgrade 123 walls, at a cost of 240,000 gold each, 29,520,000 gold total.
+- This is all that happened in the builder base this week. - 2025, Sunday, September 7th
+
+### 2025, Sunday, September 14th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, but I did use a star jar potion.
+- I had a very high level of success in battle this week, doing significantly better compared to last week. I rose back up to Steel League II, and ended the session in Steel League II, also with a new trophy record of 4,083.
+- I rose up 105 trophies (from 3,978 to 4,083 trophies) due to a very successful battle record.
+- I continued to upgrade walls using elixir, as I don't have any other good use for elixir right now (laboratory upgrades aren't doing anything to help me) I am still being careless with my gold, and spent a lot of gold on walls this week, instead of saving up for building upgrades. Many walls were upgraded. I hope to get all of the walls upgraded to level 6 or higher, so that I can spend elixir (instead of gold) to upgrade them. This will require me to upgrade 114 more walls, at a cost of 240,000 gold each, 27,560,000 gold total.
+- This is all that happened in the builder base this week. - 2025, Sunday, September 14th
+
+### 2025, Sunday, September 21st
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor I did use a star jar potion.
+- I had a very high level of success in battle this week, doing slightly worse compared to last week. I stayed in Steel League II, and ended the session in Steel League II, also with a new trophy record of 4,170, before dropping down to 4,120.
+- I rose up 37 trophies (from 4,083 to 4,120 trophies) due to a successful battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, September 21st
+
+### 2025, Sunday, September 28th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use a clock tower potion, nor I did use a star jar potion.
+- I had a moderate level of success in battle this week, doing worse compared to last week. I stayed in Steel League II, and ended the session in Steel League II.
+- I dropped down 14 trophies (from 4,120 to 4,106 trophies) due to a moderately successful battle record. II, also with a new trophy record of 4,170, before dropping down to 4,120.
+- This is all that happened in the builder base this week. - 2025, Sunday, September 28th
+
+### 2025, Sunday, Octoebnr 5th
+
+- I did mostly night witch spamming yet again today, along with 2 Power P.E.K.K.A.s. I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I used several clock tower potion, but I did not use any star jar potions. I only did battles on Sundays. Next week, I plan to do builder base battles on both Wednesday and Sunday.
+- I had a moderate level of success in battle this week, doing worse compared to last week. I stayed in Steel League II, and ended the session in Steel League II.
+- I rose up 2 trophies (from 4,106 to 4,108 trophies) due to a moderately successful battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, October 5th
+
+### 2025, Sunday, October 12th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I used 1 clock tower potion, but did not use any star jar potions.
+- I had 2 builder base battle sessions, once on Wednesday, and once on Sunday.
+- I had a moderate level of success in battle this week, doing better compared to last week. I stayed in Steel League II, and ended the session in Steel League II.
+- I rose up 30 trophies (from 4,108 to 4,138 trophies) due to a moderately successful battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, October 12th
+
+### 2025, Sunday, October 19th
+
+- I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I used 1 clock tower potion, but did and also used 1 star jar potion.
+- I had 2 builder base battle sessions, once on Wednesday, and once on Sunday.
+- I had a high level of success in battle this week, doing better compared to last week. I ranked up to Titanium League I, and ended the session in Titanium League I.
+- I rose up 101 trophies (from 4,138 to 4,239 trophies) due to a successful battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, October 19th
+
+### 2025, Sunday, October 26th
+
+- [SUNDAY ONLY] I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use any clock tower potions, but I did use 1 star jar potion.
+- I had 2 builder base battle sessions, once on Wednesday, and once on Sunday.
+- I had a lower level of success in battle this week, doing worse compared to last week. I stayed in Titanium League I.
+- I dropped down 9 trophies (from 4,239 to 4,228 trophies) due to a poor battle record
+- This is all that happened in the builder base this week. - 2025, Sunday, October 26th
+
+### 2025, Sunday, Novemebr 2nd
+
+- [SUNDAY ONLY] I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use any clock tower potions, but I did use 1 star jar potion.
+- I had 2 builder base battle sessions, once on Wednesday, and once on Sunday.
+- I had a higher level of success in battle this week, doing worse compared to last week. I fell out of Titanium League I on Wednesday, but made it back on Sunday.
+- I rose up 75 trophies (from 4,228 to 4,303 trophies) due to a mixed battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, November 2nd
+
+### 2025, Sunday, Novemebr 9th
+
+- [SUNDAY ONLY] I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use any clock tower potions, nor did I use any star jar potions.
+- I had 2 builder base battle sessions, once on Wednesday, and once on Sunday.
+- I had a lower level of success in battle this week, doing worse compared to last week. I briefly reached Platinum League I twice, but fell back, and ended in Titanium League I, on Sunday.
+- I rose up 23 trophies (from 4,303 to 4,326 trophies) due to a mixed battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, November 9th
+
+</details>
+
+### 2025, Sunday, Novemebr 16th
+
+- [SUNDAY ONLY] I used my clock tower boost before the first battle, and cleaned up some obstacles this week before that. This week, I did not use any clock tower potions, nor did I use any star jar potions.
+- I had 2 builder base battle sessions, once on Wednesday, and once on Sunday.
+- I had a higher level of success in battle this week, doing worse compared to last week.
+- I rose up 38 trophies (from 4,326 to 4,364 trophies) due to a mixed battle record.
+- This is all that happened in the builder base this week. - 2025, Sunday, November 16th
+
+***
+
+## 3D Touch issues
+
+<details><summary><p>Click/tap here to expand/collapse older entries</p></summary>
+
+- While playing today, I constantly dealt with issues related to my posture of holding the device (which caused constant errors, and sporadic screengrabs) and the return of an annoying bug that made the game do nothing but zoom in and out with little control. The only fix is to turn the screen off, back on, quickly minimize the game, maximimize it, then quickly turn the screen off again, back on, quickly minimize the game again, and maximize it. It was so annoying. Sometimes it would start doing it again after the next screengrab. - 2021, Sunday, November 28th
+- There were no touchscreen control issues today, and I was a lot better about my posture. - 2021, Sunday, December 5th
+- I had increased difficulty with the screen today compared to last week, but it still wasn't as bad as 2 weeks ago. - 2021, Sunday, December 12th
+- It was a bit difficult again today, but it got better over time. - 2021, Sunday, December 19th
+- It was very difficult at times today. - 2021 Sunday December 26th
+- It was extremely difficult and frustrating today. - 2022 Sunday January 2nd
+- It was extremely difficult and frustrating again today, the screenshot functionality was also having issues. - 2022 Sunday January 9th
+- It was a lot less difficult today, but there were still some issues. - 2022 Sunday January 16th
+- It was very very difficult and frustrating today, although it was mostly screenshot functionality that was at issue. - 2022 Sunday January 23rd
+- It was a lot less difficult today, but there were still some issues. - 2022 Sunday January 30th
+- It was much less difficult today, but there were still some minor issues. - 2022 Sunday February 6th
+- It was a lot MORE difficult today. - 2022 Sunday February 13th
+- It was a lot less difficult today, but there were still some issues. - 2022 Sunday February 20th
+- It was about the same as last week. - 2022 Sunday February 27th
+- It was much less difficult today, but there were still some very minor issues. - 2022 Sunday March 6th
+- It was much less difficult today in the normal way, but there were still some very minor issues. It was a much bigger issue today where a screenshot would get stuck, and force me to minimize and maximize, which was very slow. - 2022 Sunday March 13th
+- It was a bit more difficult today, with minor issues, but it was tolerable. - 2022 Sunday March 20th.
+- There were no 3D touch issues today. - 2022, Sunday, March 27th
+- It was a bit more difficult today, with minor issues, but it was tolerable. - 2022 Sunday April 3rd
+- It was a lot less difficult today, with minor issues, but it was tolerable. - 2022 Sunday April 10th
+- It was a bit difficult today, but it was tolerable. - 2022, Sunday, April 17th
+- It was slightly difficult today, mostly tolerable. - 2022, Sunday, April 24th to 2022, Sunday, May 8th
+- There were no 3D touch issues today. - 2022, Sunday, May 15th
+- It was pretty difficult and frustrating today, although it was went away early on. - 2022, Sunday, May 22nd
+- It was pretty difficult and frustrating today, although it was went away a bit later on. - 2022, Sunday, May 29th
+- There were no 3D touch issues today. - 2022, Sunday, June 5th
+- It was slightly difficult today, mostly tolerable later on. - 2022, Sunday, June 12th
+- It was extremely difficult and frustrating for most of the session today. - 2022, Sunday, June 19th
+- 3D touch issues weren't an issue today, however, my posture was. I constantly closed menus with the back button by accident. I can classify the last 10+ entries as this, and not 3D touch. - 2022, Sunday, June 26th
+- There were no significant issues with 3D touch or posture today. - 2022, Sunday, July 3rd to 2022, Sunday, July 10th
+- It was extremely difficult and frustrating for most of the session today. - 2022, Sunday, July 17th
+- 3D touch issues weren't an issue today, however, my posture was. I constantly closed menus with the back button by accident. I can classify the last 10+ entries as this, and not 3D touch. This only applied to the beginning of the session. - 2022, Sunday, July 24th
+- It was a bit difficult and frustrating for most of the session today. - 2022, Sunday, July 31st to 2022, Sunday, August 21st
+- There were no significant issues with 3D touch or posture today. - 2022, Sunday, August 28th
+- It was a bit difficult and frustrating for most of the session today. - 2022, Sunday, September 4th
+- There were no significant issues with 3D touch or posture today. - 2022, Sunday, September 11th
+- 3D touch issues were minimal this week. - 2022, Sunday, September 18th to 2022, September 25th
+- There were no 3D touch or posture issues today. - 2022, October 2nd to 2022, October 16th
+- 3D touch issues were minimal this week. - 2022, Sunday, October 23rd to 2022, Sunday, October 30th
+- There were no 3D touch or posture issues today. - 2022, Sunday, November 6th to 2022, Sunday, November 13th
+- It was a bit difficult and frustrating for most of the session today. - 2022, Sunday, November 20th
+- There were no 3D touch or posture issues today. - 2022, Sunday, November 27th
+- There were no 3D touch or posture issues today, but I did have difficulty with red text. - 2022, Sunday, December 4th
+- There were no 3D touch or posture issues today. - 2022, Sunday, December 11th to 2022, Sunday, December 18th
+- There were no 3D touch or posture issues today, but I did have difficulty with red text. - 2022, Sunday, December 25th
+- There were no 3D touch or posture issues today. - 2023, Sunday, January 1st to 2023, Sunday, January 1st
+- There were no 3D touch or posture issues today, but I did have difficulty with red text. - 2023, Sunday, January 8th
+- It was a bit difficult and frustrating for most of beginning of the session today. - 2023, Sunday, January 15th
+- There were no 3D touch or posture issues today. - 2023, Sunday, January 22nd
+- There were no 3D touch or posture issues today, but there were some red text issues. - 2023, Sunday, January 29th
+- There were some 3D touch issues today, and also red text issues. - 2023, Sunday, February 5th to 2023, Sunday, February 19th
+- There were no 3D touch issues today, but I had difficulty not making red text come up. - 2023, Sunday, February 26th
+- There were some 3D touch issues today, and also red text issues. - 2023, Sunday, March 5th to 2023, Sunday, March 19th
+- There were lots of 3D touch issues today, and some red text issues. - 2023, Sunday, March 26th to 2023, Sunday, April 2nd
+- New definition: Edge screen issues: I had lots of edge screen issues today, along with some red text issues. There were some pinch-zoom issues later on. - 2023, Sunday, April 9th
+- There were some red text issues today, along with lots of edge screen issues. My device also had severe lag for the first half of the session. - 2023, Sunday, April 16th
+- There were some red text issues today, along with lots of edge screen issues, one of them happened at the worst possible time (when I got an achievement for upgrading my town hall to level 11) - 2023, Sunday, April 23rd
+- There were very minimal edge screen issues today. - 2023, Sunday, April 30th
+- There were very minimal edge screen issues today, along with lots of red text issues. - 2023, Sunday, May 7th
+- There were frequent red text issues today. - 2023, Sunday, May 14th
+- There were very minimal red text issues today. - 2023, Sunday, May 21st to 2023, Sunday, May 28th
+- There were some red text issues today. - 2023, Sunday, June 4th to 2023, Sunday, July 9th
+- There were very severe edge screen issues today, along with some red text issues. - 2023, Sunday, July 16th to 2023, Sunday, July 23rd
+- There were very minimal edge screen issues today, along with some red text issues. - 2023, Sunday, July 30th to 2023, Sunday, August 13th
+- There were some red text issues today. These are almost always a user error. - 2023, Sunday, August 20th to 2023, Sunday, September 24th
+- There were very minimal red text issues today. - 2023, Sunday, October 1st to 2023, Sunday, October 8th
+- There were very heavy amounts of red text issues today. These are all user errors. - 2023, Sunday, October 15th
+- There were moderate amounts of red text issues today. These are all user errors. - 2023, Sunday, October 22nd to 2023, Sunday, December 10th
+- There were very heavy amounts of red text issues today. These are all user errors. - 2023, Sunday, December 17th to 2023, Sunday, January 14th
+- There were moderate amounts of red text issues today. These are all user errors. - 2024, Sunday, January 21st to 2024, Sunday, March 3rd
+- There were some red text issues today. These are almost always a user error. - 2024, Sunday, March 10th to 2024, Sunday, March 17th
+- There were moderate issues with the volume bar appearing today, as I was having difficulty getting screenshots with a case on. There were no edge screen issues today. - 2024, Sunday, March 24th
+- There were no edge screen issues today. - 2024, Sunday, March 31st
+- There were moderate issues with the volume bar appearing today, as I was having difficulty getting screenshots with a case on. There were no edge screen issues today. - 2024, Sunday, April 7th
+- There were some red text issues today. These are almost always a user error. - 2024, Sunday, April 14th to 2024, Sunday, April 28th
+- There were no edge screen issues today. - 2024, Sunday, May 5th
+- There were some red text issues today. These are almost always a user error. - 2024, Sunday, May 12th
+- There were lots of red text issues today. These are almost always a user error. - 2024, Sunday, May 19th
+- There were lots of red text issues today. These are almost always a user error. Additionally, due to button issues, the volume bar appeared in multiple screenshots. - 2024, Sunday, May 26th
+- There were some red text issues today. These are almost always a user error. Additionally, due to button issues, the volume bar may have appeared in multiple screenshots. - 2024, Sunday, June 2nd
+- There were some red text issues today. These are almost always a user error. The volume bar also appeared in 1 screenshot. - 2024, Sunday, June 9th
+- There were significant red text issues today. These are almost always a user error. The volume bar also appeared in multiple screenshots. - 2024, Sunday, June 16th
+- There were notable red text issues today. These are almost always a user error. The volume bar also appeared in multiple screenshots. - 2024, Sunday, June 23rd to 2024, Sunday, August 4th
+- There were notable red text issues today. These are almost always a user error. - 2024, Sunday, August 11th
+- There were limited red text issues today. These are almost always a user error. - 2024, Sunday, August 18th
+- There were notable red text issues today. These are almost always a user error. - 2024, Sunday, August 25th to 2024, Sunday, November 3rd
+- There were frequent red text issues today. These are almost always a user error. - 2024, Sunday, November 10th to 2024, Sunday, November 24th
+- There were notable red text issues today. These are almost always a user error. - 2024, Sunday, December 1st to 2025, Sunday, March 23rd
+- There were notable red text issues today. These are almost always a user error. There were also issues with the power button today, which made it harder to take screenshots. I am fearing device failure even more now. - 2025, Sunday, March 30th
+- There were notable red text issues today. These are almost always a user error. - 2025, Sunday, April 6th
+- There were minimal red text issues today. These are almost always a user error. - 2025, Sunday, April 13th
+- There were notable red text issues today. These are almost always a user error. - 2025, Sunday, April 20th to 2025, Sunday, September 28th
+- There were notable red text issues today. These are almost always a user error. There were lots of errors with gripping and taking screenshots, which led to close to a hundred errors this week. - 2025, Sunday, October 5th
+- There were notable edge screen issues today. These are almost always a user error. There were lots of errors with gripping and taking screenshots, which led to over a hundred errors this week. - 2025, Sunday, October 19th
+- [SUNDAY ONLY] There were severe edge screen, screenshot failure, and device posture issues during gameplay today. - 2025, Sunday, October 26th
+- There were minimal edge screen issues today. These are almost always a user error. There were less errors with gripping and taking screenshots this week. - 2025, Sunday, November 9th
+
+</details>
+
+- There were some edge screen issues this week. These are almost always a user error. There were more errors with gripping and taking screenshots this week, and 1 critical error, where an important screenshot could not be taken, due to an Android screenshot delay bug. - 2025, Sunday, November 16th
+
+Formal definitions (finally added on 2023, Sunday, April 9th)
+
+- **3D touch (obsolete):** See `Edge screen` and `Pinch-zoom`
+- **Edge screen:** Issues related to posture (closing menu dialog due to touching the screen edge)
+- **Pinch-zoom:** Android bug where after certain screenshots, there is no control, and every action you make either zooms in or zooms out the game. It sometimes corrects on its own, but it sometimes requires turning the screen off, turning it back on, minimizing the application, then maximimizing the application.
+- **Red text:** Text such as `All forces deployed` showing up in screenshots due to accidental screen presses.
+
+***
+
+## Level up
+
+**Current level:** `158` _(as of 2025, Sunday, November 16th)_
+
+<details><summary><p>Click/tap here to expand/collapse older entries</p></summary>
+
+- On 2022, Sunday, July 31st, I leveled up to level 128. - 2022, Sunday, July 31st
+- I did not level up today. - 2022, Sunday, August 7th to 2022, Sunday, September 18th
+- Since my last session, I leveled up to level 129. - 2022, Sunday, September 25th
+- I did not level up today. - 2022, Sunday, October 2nd to 2022 November 27th
+- Since my last session, I leveled up to level 130. - 2022, Sunday, December 4th
+- I did not level up today. - 2022, Sunday, December 11th to 2023, Sunday, January 29th
+- Since my last session, I leveled up to level 131. - 2023, Sunday, February 5th
+- I did not level up today. - 2023, Sunday, February 12th to 2023, Sunday, March 5th
+- Since my last session, I leveled up to level 132. - 2023, Sunday, March 12th
+- I did not level up today. - 2023, Sunday, March 19th to 2023, Sunday, April 16th
+- I did not level up today, but I came incredibly close to leveling up to level 133. - 2023, Sunday, April 23rd
+- Since my last session, I leveled up to level 133. - 2023, Sunday, April 30th
+- Since my last session, I leveled up to level 134. - 2023, Sunday, May 7th
+- I did not level up today. - 2023, Sunday, May 14th
+- Since my last session, I leveled up to level 135. - 2023, Sunday, May 21st
+- I did not level up today. - 2023, Sunday, May 28th to 2023, Sunday, June 4th
+- Since my last session, I leveled up to level 136. - 2023, Sunday, June 11th
+- I did not level up today. - 2023, Sunday, June 18th to 2023, Sunday, July 9th
+- Since my last session, I leveled up to level 137, although I completely overlooked it this week. - 2023, Sunday, July 16th
+- I did not level up today, but I finally took notice that I leveled up to level 137 (upon looking through notes the next day) - 2023, Sunday, July 23rd/2023, Monday, July 24th
+- I did not level up today. - 2023, Sunday, July 30th to 2023, Sunday, August 6th
+- Briefly after entering the builder base, I leveled up to level 138. - 2023, Sunday, August 13th
+- I did not level up today. - 2023, Sunday, August 20th to 2023, Sunday, September 3rd
+- Since my last session, I leveled up to level 139. - 2023, Sunday, September 10th
+- I did not level up today. - 2023, Sunday, September 17th to 2023, Sunday, October 1st
+- Since my last session, I leveled up to level 140. - 2023, Sunday, October 8th
+- I did not level up today. - 2023, Sunday, October 15th to 2023, Sunday, November 19th
+- Since my last session, I leveled up to level 141. - 2023, Sunday, November 26th
+- I did not level up today. - 2023, Sunday, December 3rd to 2023, Sunday, December 17th
+- I did not level up today, although I came incredibly close to leveling up to level 142 in my session today. That will now occur next week. - 2023, Sunday, December 24th
+- Since my last session, I leveled up to level 142. - 2023, Sunday, December 31st
+- I did not level up today. - 2024, Sunday, January 7th to 2024, Sunday, February 4th
+- Since my last session, I leveled up to level 143. - 2024, Sunday, February 11th
+- I did not level up today. - 2024, Sunday, February 18th to 2024, Sunday, March 24th
+- I did not level up today, but I was extremely close to doing so. - 2024, Sunday, March 31st
+- Since my last session, I leveled up to level 144. - 2024, Sunday, April 7th
+- I did not level up today. - 2024, Sunday, April 14th to 2024, Sunday, May 5th
+- I did not level up today, but I will level up next week. - 2024, Sunday, May 12th
+- Since my last session, I leveled up to level 145. - 2024, Sunday, May 19th
+- I did not level up today. - 2024, Sunday, May 26th to 2024, Sunday, June 23rd
+- Since my last session, I leveled up to level 146. - 2024, Sunday, June 30th
+- I did not level up today. - 2024, Sunday, July 7th to 2024, Sunday, August 4th
+- I did not level up today, but I will level up by next week. - 2024, Sunday, August 11th
+- Since my last session, I leveled up to level 147. - 2024, Sunday, August 18th
+- I did not level up today. - 2024, Sunday, August 25th to 2024, Sunday, September 29th
+- Since my last session, I leveled up to level 148. - 2024, Sunday, October 6th
+- I did not level up today. - 2024, Sunday, October 13th to 2024, Sunday, November 3rd
+- I did not level up today, but there are 7 upgrades that will finish by next week, so I will likely level up then. Hopefully I don't level up twice too quickly. - 2024, Sunday, November 10th
+- Since my last session, I leveled up to level 149. - 2024, Sunday, November 17th
+- I did not level up today. - 2024, Sunday, November 24th to 2024, Sunday, December 8th
+- Since my last session, I leveled up to level 150. - 2024, Sunday, December 15th
+- I did not level up today. - 2024, Sunday, December 22nd to 2025, Sunday, March 16th
+- Since my last session, I leveled up to level 151. - 2025, Sunday, March 23rd
+- I did not level up today. - 2025, Sunday, March 30th to 2025, Sunday, June 29th
+- Since my last session, I leveled up to level 152. - 2025, Sunday, July 6th
+- I did not level up today. - 2025, Sunday, July 13th to 2025, Sunday, October 5th
+- Since my last session, I leveled up to level 153 - 2025, Sunday, October 12th
+- Since my last session, I leveled up to level 154 - 2025, Sunday, October 19th
+- Since my last session, I leveled up to level 155 - 2025, Sunday, October 26th
+- Since my last session, I leveled up to level 156 - 2025, Sunday, November 2nd
+- Since my last session, I leveled up to level 157 - 2025, Sunday, November 9th
+
+</details>
+
+- Since my last session, I leveled up to level 158 - 2025, Sunday, November 16th
+
+***
+
+## Clan capital
+
+<details><summary><p>Click/tap here to expand/collapse older entries</p></summary>
+
+- So last week (2022, Sunday, May 8th) Clash of Clans had an update I forgot to mention until now (2022, Sunday, May 15th, but I didn't write about it until 2022, Wednesday, May 18th) the clan capital seems to be a new gamemode, but since my clan is and always will be inactive, there is no way I can get the clan to level 2 to unlock this region. I did not visit the clan capital today. - 2022, Sunday, May 15th
+- Read above entry. I did not visit the clan capital today, as I haven't unlocked it yet. - 2022, Sunday, May 22nd to 2023, Sunday, September 10th
+- I have had a little interest in the clan capital, after listening to Clash of Clans music this week, and thinking on it. Unfortunately, I will never get to play with it. - 2023, Sunday, October 8th
+- I did not go to the Clan Capital today, as my Clan isn't capable of it. - 2023, Sunday, October 22nd to 2024, Sunday, December 22nd
+- I did not go to the Clan Capital today, as my Clan isn't capable of it. It is disappointing that I keep earning capital gold, but it just disintegrates when I collect it. - 2024, Sunday, December 29th to 2025, Sunday, April 27th
+- I did not go to the Clan Capital today, as my Clan isn't capable of it. It is disappointing that I keep earning capital gold, but it just disintegrates when I collect it. Additionally, another clan member was removed today due to something happening with the account (likely due to it being inactive for too long) and a clan capital definitely can't work when there are only 2 clan members. - 2025, Sunday, May 11th
+
+</details>
+
+- I did not go to the Clan Capital today, as my Clan isn't capable of it. It is disappointing that I keep earning capital gold, but it just disintegrates when I collect it. - 2025, Sunday, May 25th to 2025, Sunday, November 16th
+
+***
+
+## SUPERCELL ID
+
+```id=center
+SUP
+ERC
+ELL
+```
+
+I created my SUPERCELL ID today to make backing this game up an easier process, and to get 50 gems. I really like the level of thought that was put into the cosmetics of the SUPERCELL ID Account. I would go on and apply it to my Boom Beach account. - 2024, Sunday, October 13th
+
+***
+
+## ProtonDrive comments
+
+<details><summary><p>Click/tap here to expand/collapse older entries</p></summary>
+
+- ProtonDrive recently began acting up, and is stalling on large uploads 100 megabytes or larger. I had to split the image inodes into groups of 50 compared to the normal groups of 100, and didn't correct this, as I felt like changing it up. - 2022 Sunday, May 8th
+- I am still using this system. - 2022, Sunday, May 15th to 2022, Sunday, May 22nd
+- I stopped using this system due to ProtonDrive having a bad day, which caused me to go back to pCloud temporarily. I might stay with pCloud now. - 2022, Sunday, May 29th
+- As of this entry, I am still using pCloud. - 2022, Sunday, June 5th to 2023, Sunday, March 12th
+- As of this entry, I am still using pCloud. There were some severe issues yesterday, and I thought I would be using ProtonDrive today, but it got cleared up. - 2022, Sunday, March 19th
+- As of this entry, I am still using pCloud. - 2023, Sunday, March 26th to 2024, Sunday, February 18th
+- As of this entry, I am still using pCloud. However, ProtonDrive has improved significantly since, and I am considering switching over. - 2024, Sunday, February 25th to 2024, Sunday, April 28th
+- Due to repeated upload failures today, I decided to switch to ProtonDrive for todays upload. It works way better, and I should have done this sooner. The upload speed is much faster, and there were no errors. - 2024, Sunday, May 5th
+- As of this entry, I am still using ProtonDrive, instead of pCloud. - 2024, Sunday, May 12th to 2025, Sunday, January 12th
+- As of this entry, I am still using ProtonDrive, instead of pCloud, although today, an issue prevented me from downloading my session data onto my laptop. - 2025, Sunday, January 19th
+- As of this entry, I am still using ProtonDrive, although uploads of game session screenshot data is currently impossible due to a download issue. - 2025, Sunday, January 26th to 2025, Sunday, February 2nd
+- As of this entry, I am still using ProtonDrive. I resolved the issue with data downloads this week. - 2025, Sunday, February 9th
+
+</details>
+
+- As of this entry, I am still using ProtonDrive. - 2025, Sunday, February 16th to 2025, Sunday, November 16th
+
+***
+
+## Case comments
+
+<details><summary><p>Click/tap here to expand/collapse older entries</p></summary>
+
+- I did not play with my new PDA case today, as I didn't remember to put it back on (I would keep it on, but it refuses to charge with the case on, despite being completely capable (it charged at least 4% before giving an error message, telling me to take the case off to continue charging) - 2024, Sunday, March 3rd
+- I did not play with my new case today, as I again forgot to use it. - 2024, Sunday, March 10th
+- I played with my new case today. It helped significantly. - 2024, Sunday, March 17th
+- I played with my new case again today. It helped significantly. - 2024, Sunday, March 24th to 2024, Sunday, November 24th
+- I played with my new case again today. It helped significantly, although the case is now falling apart, and causing some sensitivity issues. There were power button issues during gameplay, where I randomly turned screen off a few times. - 2024, Sunday, December 1st
+- I played with my new case again today. It helped significantly, although the case is now falling apart, and causing some sensitivity issues. - 2024, Sunday, December 8th to 2025, Sunday, September 7th
+- I played with my new case again today. It helped significantly, although the case is really falling apart, and causing some sensitivity issues, albeit still infrequently. I am getting a replacement case. - 2025, Sunday, September 21st
+- I played without my newest case today, as I have found the buttons to be too hard to accurately press, as I would repeatedly bring up the volume slider, which interfered with the screenshots. There were relatively little annoyances playing this way. - 2025, Sunday, September 28th
+
+</details>
+
+- I played without my newest case today, as I have found the buttons to be too hard to accurately press, as I would repeatedly bring up the volume slider, which interfered with the screenshots. The issue was then replaced with nearly a hundred screenshot gripping issues. - 2025, Sunday, October 5th to 2025, Sunday, November 16th
+
+***
+
+## Feature requests
+
+<details><summary><p>Click/tap here to expand/collapse older entries</p></summary>
+
+- No older entries
+
+</details>
+
+### Bring back the old UI
+
+- I still miss the old UI. There should at least be an option to toggle the classic UI. - 2024, Sunday, January 7th
+
+#### What I mean by the old UI:
+
+> The ability to see how a building/troop/upgrade looks, and its statistics, without forcing a preview of how it performs in battle.
+
+### More collector capacity
+
+- These games are not well suited for a system where you only play one day per week, which is a little unfortunate. It would be nice if gold mines, elixir collectors, dark elixir drills, and gem mines could continue producing resources for up to 168 hours, so that I don't have 3+ days per week where they are not producing anything. - 2025, Sunday, January 26th
+
+### Ability to toggle events
+
+- Ever since the WWE event that hid most of the classic elements of the game with random unrelated elements (which I don't feel will be the last time SUPERCELL does this) I feel that as a compromise, there should be an option to toggle event data (make things like the WWE arena army camps to revert back to the normal game style) similar to how the classic UI should be toggleable. - 2025, Sunday, april 20th
+
+***
+
+## What I like and don't like about Clash of Clans
+
+### What I like about Clash of Clans
+
+- The music
+- The sound effects
+- The various mechanics of buildings and levels
+- The designs of the buildings and game scenery
+- The games humor (sometimes)
+- How the game feels
+- Nostalgia
+- Battle mechanics in the main village
+- The builder base
+- How resources don't get stolen in the builder base
+- Gem boxes
+- Gold mines and elixir collectors (and how resources build up in them)
+- Dark elixir drills
+- Waiting for buildings to upgrade can be fun
+- The Clash of Clans universe
+- Clash-A-Rama
+- The Clash of Clans commercials
+- The various troops
+- The unique spells
+- How villagers roam around the village
+- The incompetence of the builders
+- The gem mine
+- Air defense buildings
+- Cannons
+- Geared up buildings
+- The unique mechanics of the builder base, in comparison to the main village.
+- The concept of a clan capital
+- The customizability of SUPERCELL ID
+- The games loading screen
+- The games level system
+- The ability to visit other players
+- The unique and valuable, seasonal and event decorations
+- The lighting up of the barracks and laboratory when they are in use
+- Spell factory animations while they are in use
+- Different base layouts
+- the new village attack artwork on the welcome back screen (2025, October)
+
+### What I don't like about Clash of Clans
+
+- It is closed source, proprietary software
+- It requires an Internet connection to play, and doesn't have any offline functionality
+- Random sponsorships, and eSports tournaments are prominent
+- The Pay to Win nature of the game
+- In-app purchases
+- Modifications to heroes in 2025
+- Lightning spells, and their ability to get collectors data
+- Collectors not being designed to hold 168 hours worth of resources, and stopping production (getting full) after less than 48 hours,
+- Matchmaking is not always good
+- The inability to use the clan capital with a clan that only has 1 active member
+- Forced game updates
+- The real money cost of decorating the base
+- The removal of all national flag decorations
+- Decorations that cost gems
+- The difficulty in not accidentally removing valuable decorations
+- the new league systemn (2025, October)
+
+***
+
+## Labels
+
+`Clash-obsessed`
+
+***
+
+## Overview
+
+- See above.
+
+***
+
+# File info
+
+- **File version:** `1 (2025, Sunday, November 16th at 09:27 pm PST)`
+- End of file
+
+***
